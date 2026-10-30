@@ -1,0 +1,49 @@
+Legge regionale
+20 marzo 2024
+11
+Disposizioni in materia di impianti di radiocomunicazione. Modifiche alla l.r. 49/2011.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, terzo comma, della Costituzione;
+Visto l'articolo 4, comma 1, lettere c) e l), dello Statuto;
+Vista la direttiva (UE) 2018/1972 del Parlamento europeo e del Consiglio dell'11 dicembre 2018 che istituisce il codice europeo delle comunicazioni elettroniche;
+Vista la raccomandazione (UE) 2020/1307 della Commissione del 18 settembre 2020 relativa a un pacchetto di strumenti comuni dell'Unione per ridurre i costi di installazione di reti ad altissima capacità e garantire un accesso allo spettro radio 5g tempestivo e favorevole agli investimenti al fine di promuovere la connettività a sostegno della ripresa economica dalla crisi di Covid-19 nell'Unione;
+Vista la legge 22 febbraio 2001, n. 36 (Legge quadro sulla protezione dalle esposizioni a campi elettrici, magnetici ed elettromagnetici);
+Visto il decreto legislativo 1 agosto 2003, n. 259 (Codice delle comunicazioni elettroniche);
+Visto il decreto-legge 16 luglio 2020 n. 76 (Misure urgenti per la semplificazione e l'innovazione digitale) convertito, con modificazioni, dalla legge 11 settembre 2020, n. 120;
+Vista la legge 22 aprile 2021, n. 53 (Delega al Governo per il recepimento delle direttive europee e l'attuazione di altri atti dell'Unione europea - Legge di delegazione europea 2019 2020);
+Visto il decreto legislativo 8 novembre 2021, n. 207 (Attuazione della direttiva (UE) 2018/1972 del Parlamento europeo e del Consiglio, dell'11 dicembre 2018, che istituisce il Codice europeo delle comunicazioni elettroniche "rifusione");
+Vista la legge regionale 6 ottobre 2011, n. 49 (Disciplina in materia di impianti di radiocomunicazione);
+Visto il parere favorevole del Consiglio delle autonomie locali, espresso nella seduta dell'11 luglio 2023.
+Considerato quanto segue:
+1. La l.r. 49/2011 è la normativa regionale di riferimento per la localizzazione, l'installazione, la modifica, il controllo ed il risanamento degli impianti di radiocomunicazione in Toscana, nella finalità del rispetto degli obiettivi di qualità, dei limiti di esposizione e dei valori di attenzione in modo da produrre i valori di campo elettromagnetico più bassi possibile, al fine di minimizzare l'esposizione della popolazione;
+2. Negli anni le tecniche di trasmissione del segnale di radiocomunicazione hanno subito mutamenti per le innovazioni tecnologiche;
+3. La normativa statale è più volte intervenuta per semplificare il rilascio del titolo abilitativo per il quale la l.r. 49/2011 rimanda alle procedure stabilite dal d.lgs. 259/2003, e lo stesso ha fatto la normativa europea;
+4. Uno degli scopi della direttiva 2018/1972/UE è "Realizzare un mercato interno delle reti e dei servizi di comunicazione elettronica che si traduca in realizzazione e diffusione di reti ad altissima capacità, concorrenza sostenibile, interoperabilità dei servizi di comunicazione elettronica, accessibilità, sicurezza delle reti e dei servizi e vantaggi per gli utenti finali"; nel preambolo si legge, inoltre, che:
+a) le "nuove reti ad altissima capacità sostengono l'innovazione nel campo dei servizi internet ricchi di contenuti e rafforzeranno la competitività internazionale dell'Unione. Tali reti presentano un enorme potenziale in termini di benefici per i consumatori e le imprese in tutta l'Unione";
+b) "Le comunicazioni elettroniche stanno diventando indispensabili per un numero crescente di settori. …plasmando la realtà sociale ed economica";
+c) "…l'intervento normativo deve fondarsi su informazioni dettagliate circa il dispiegamento delle reti per poter essere efficace e rivolgersi alle aree in cui è necessario. Tali informazioni sono essenziali al fine di promuovere gli investimenti, accrescere la connettività nell'Unione e fornire informazioni a tutte le autorità competenti così come ai cittadini";
+d) "Se si impone ad operatori mobili di condividere torri o piloni per ragioni ambientali, dette condivisioni obbligatorie potrebbero comportare una riduzione dei livelli massimi di potenza trasmessa consentiti a ciascun operatore per ragioni di sanità pubblica, con la conseguente eventuale necessità per gli operatori di installare un maggior numero di siti di trasmissione al fine di garantire la copertura nazionale";
+e) "È imperativa l'esigenza di garantire che i cittadini non siano esposti a campi elettromagnetici a un livello dannoso per la salute pubblica. Gli Stati membri dovrebbero perseguire la coerenza in tutta l'Unione per affrontare la questione, tenendo conto in particolare del principio di precauzione invocato nella raccomandazione 1999/519/CE, al fine di adoperarsi per assicurare una maggiore coerenza delle condizioni di diffusione. Gli Stati membri dovrebbero applicare, se del caso, la procedura di cui alla direttiva (UE) 2015/1535 anche al fine di garantire la trasparenza per le parti interessate e permettere ad altri Stati membri e alla Commissione di reagire";
+f) "Dato l'elevato livello dell'innovazione tecnologica e la presenza di mercati estremamente dinamici nel settore delle comunicazioni elettroniche, occorre adattare rapidamente la normativa in modo coordinato e armonizzato a livello dell'Unione,";
+5. Nella raccomandazione 2020/1307/UE , si legge che:
+a) l'Europa si pone l'obiettivo "… di incentivare lo sviluppo tempestivo di reti ad altissima capacità, comprese le reti in fibra ottica e le reti senza fili di prossima generazione.";
+b) "L'accesso a informazioni complete, accurate e aggiornate è indispensabile per garantire un uso efficiente delle infrastrutture fisiche esistenti e un adeguato coordinamento delle opere…";
+c) "L'impronta ambientale del settore delle comunicazioni elettroniche aumenta ed è essenziale prendere in considerazione tutti i mezzi possibili per contrastare tale tendenza.";
+6. L'articolo 4 della l. 53/2021 ha delegato il Governo anche all'attuazione della direttiva 2018/1972/UE stabilendo criteri direttivi tra i quali si ricorda il riordino delle disposizioni del codice delle comunicazioni elettroniche, di cui al d.lgs. 259/2003, attraverso l'adozione di un nuovo codice delle comunicazioni elettroniche per l'armonizzazione della normativa di settore, assicurando il necessario coordinamento tra le disposizioni oggetto di modifica o integrazione;
+7. La direttiva 2018/1972/UE è stata attuata mediante il d.lgs. 207/2021;
+8. La presente legge, quindi, si pone nel quadro della normativa europea sopra richiamata e della normativa nazionale d'attuazione, salvaguardando il principio di precauzione per evitare livelli dannosi per la salute pubblica, come detto anche dalla direttiva 2018/1972/UE, e prevedendo:
+a) l'introduzione degli obiettivi di assicurare la migliore qualità del servizio e la relativa valutazione dei livelli raggiunti;
+b) la promozione di sistemi informativi a supporto della qualità delle comunicazioni e della copertura di rete e quindi lo sviluppo delle reti a banda larga e dei servizi che utilizzano tali reti, con livelli elevati di qualità di servizio;
+c) l'aggiornamento dei riferimenti normativi alle recenti modifiche del d.lgs. 259/2003 operate dal d.lgs. 207/2021;
+d) alcune modifiche al catasto regionale degli impianti e la possibilità per la Giunta regionale di adottare:
+1) linee guida per i programmi degli impianti approvati dai comuni;
+2) disposizioni operative per lo svolgimento coordinato degli adempimenti previsti dalla legge in tema di autorizzazioni, programma comunale degli impianti, catasto e utilizzo efficiente dello spazio elettromagnetico per agevolare i compiti dei comuni, dell'Agenzia regionale per la protezione ambientale della Toscana (ARPAT) e degli operatori.
+9. La Regione è impegnata da anni ad assicurare una copertura di banda ultra larga sul territorio regionale ed intende proseguire anche con azioni a livello nazionale per favorire la diffusione capillare delle nuove opportunità nelle zone meno favorite del mercato;
+10. Le linee guida della Giunta regionale, sui criteri tecnici per lo svolgimento coordinato e semplificato degli adempimenti di cui all'articolo 4, comma 1, (vedi articolo 17, comma 1, della presente legge), sono approvate entro un anno dall'entrata in vigore della presente legge;
+11. Sono implementate le funzioni del Comitato tecnico per gli impianti, che ora può fare anche proposte nelle materie oggetto della legge, nonché consulenza tecnica e giuridica ai comuni per le azioni di risanamento; in virtù della sua natura tecnica, ai dipendenti regionali e dell'ARPAT, che ne sono membri, non si applica il limite di permanenza di "tre mandati consecutivi ovvero per un periodo complessivo pari o superiore a dieci anni" previsto dalla legge regionale 8 febbraio 2008, n. 5 (Norme in materia di nomine e designazioni e di rinnovo degli organi amministrativi di competenza della Regione);
+12. È rafforzata la funzione programmatoria dei comuni mediante la possibilità di individuare aree preferibili e non idonee all'installazione degli impianti ed è introdotto il nuovo criterio localizzativo della qualità del servizio definita ai sensi della riforma del d.lgs. 259/2003; inoltre si specifica che il comune, nel predisporre il programma comunale degli impianti, può attivare percorsi di informazione e partecipazione della popolazione residente;
+13. È rafforzata, altresì, la funzione del piano di risanamento di ricognizione delle situazioni di superamento dei limiti, valori ed obiettivi di qualità e di non rispetto dei criteri localizzativi, dettando le linee di azione per il conseguente adeguamento;
+14. È prevista una nuova fattispecie di sanzione amministrativa pecuniaria per chiunque ostacoli, in qualsiasi modo, le funzioni del personale addetto alla vigilanza e controllo;
+Approva la presente legge
