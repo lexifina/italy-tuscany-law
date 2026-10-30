@@ -1,0 +1,20 @@
+Legge regionale
+28 dicembre 2009
+84
+Disposizioni per lo svolgimento dei soggiorni didattico educativi in Toscana.
+REGIONE TOSCANA
+PREAMBOLO
+VISTI:
+- l'articolo 117 comma 4 della Costituzione;
+- l'articolo 4 comma 1 lettera q) e l'articolo 59 comma 1 dello Statuto della Regione Toscana;
+- la legge regionale 23 marzo 2000 n. 42 (Testo Unico delle leggi regionali in materia di turismo);
+- la legge regionale 26 luglio 2002 n. 32 (Testo unico della normativa della Regione Toscana in materia di educazione, istruzione, orientamento, formazione professionale e lavoro);
+CONSIDERATO che:
+- la Toscana da tempo ha strutturate nel territorio esperienze periodiche di soggiorni a carattere didattico educativo in favore dei giovani, iniziative promosse da enti e associazioni senza di scopo di lucro tese a favorire attraverso la collegialità, la condivisione, la mutualità la crescita educativa del singolo anche come soggetto sociale, parte di una comunità solidale e consapevole di diritti e doveri. Particolarmente, sono le esperienze dei campeggi nei boschi o in aree aperte di valore naturalistico e i soggiorni in strutture abitative a catalizzare la maggiore partecipazione di bambini e ragazzi: l'esperienza dello scoutismo, assieme a quella di moltissime altre realtà organizzate, anche a carattere associativo, si confermano oramai da anni parte attiva di quel mondo della sussidiarietà sociale,
+- la Regione Toscana ha provveduto nel tempo a offrire concreto riconoscimento alla validità e utilità sociale di interesse generale a suddette esperienze: la l.r. 23/2002 attribuisce alla Regione il compito di promuovere "interventi di educazione non formale degli adolescenti, dei giovani …al fine di concorrere ad assicurare lo sviluppo dell'identità personale e sociale". Con il piano integrato generale di indirizzo di cui alla l.r. 32/2002 la Regione ha avviato un progetto di interesse regionale in materia di soggiorni educativi per i giovani, finalizzato a sostenere finanziariamente la realizzazione di soggiorni educativi per i giovani, promossi appunto da soggetti senza scopo di lucro;
+- sino ad oggi le esperienze dei campeggi e dei soggiorni didattico educativi trovavano riferimento, sotto il profilo dei requisiti strutturali ed organizzativi, nelle previsioni del Testo Unico delle leggi regionali in materia di turismo del 2000, rispettivamente alle disposizioni per "autorizzazione ai campeggi temporanei" (articolo 38) e alle disposizioni per le "case per ferie e rifugi escursionistici" (articolo 47), sottoponendo pertanto gli organizzatori ad una serie di adempimenti valutati come eccessivamente gravosi per la natura e la durata delle esperienze medesime;
+- da tempo, pertanto, pervenivano dai soggetti organizzatori richieste per una disciplina che prevedesse, stante le particolari caratteristiche dei soggiorni (durata limitata rispetto alle previsioni dei campeggi temporanei, numero di partecipanti generalmente ridotto, finalità didattico educative, assenza del fine di lucro), procedure di autorizzazione semplificate, alleggerimento dei requisiti organizzativi e strutturali, riduzione del carico burocratico;
+- le disposizioni agevolative riguardano: l'assoggettamento ad autoconsumo familiare dei pasti preparati, e serviti agli ospiti dei soggiorni, l'obbligo delle sole caratteristiche di civile abitazione per i locali ospitanti i soggiorni c.d. "in accantonamento", garantendo la presenza di adeguati servizi igienici, la riduzione delle pratiche amministrative;
+- per quanto concerne la semplificazione delle pratiche amministrative, in assenza di un potere della Regione verso gli enti titolari della funzione autorizzatoria, la legge prevede la promozione della sottoscrizione di un protocollo da parte dei soggetti titolari delle procedure autorizzative a vario titolo;
+- infine, si è ritenuto opportuno definire un percorso per la formazione di indirizzi univoci alla regolamentazione dell'attività di campeggio, nell'ambito delle aree protette, al fine di portare a unitarietà i vincoli e le prescrizioni all'attività campeggistica nelle suddette aree;
+si approva la seguente legge
