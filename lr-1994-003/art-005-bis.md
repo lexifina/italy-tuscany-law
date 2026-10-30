@@ -1,5 +1,0 @@
-Art. 5 bis Esercizio funzioni con soggetti terzi.
-1. La competente struttura della Giunta regionale, nell'ambito delle risorse di cui all'articolo 7, comma 2, lettera a), previo svolgimento di procedure di selezione idonee ad assicurare il rispetto dei principi di trasparenza, di non discriminazione e di efficienza, può avvalersi di soggetti terzi, in particolare delle associazioni venatorie e dei centri di assistenza agricola di cui alla legge regionale 20 gennaio 2015, n. 7 (Disposizioni in materia di semplificazione di procedimenti in materia di agricoltura e di centri autorizzati di assistenza agricola) operanti sul territorio regionale per l'esercizio delle seguenti attività:
-a) attività di carattere procedimentale che non implichi esercizio di discrezionalità amministrativa;
-b) promozione della cultura della sicurezza.
-2. L'individuazione delle attività e le modalità per l'esercizio delle funzioni di cui al comma 1 sono definite con delibera di Giunta regionale, entro centottanta giorni dall'entrata in vigore della legge regionale 15 luglio 2020, n. 61 (Gestione e tutela della fauna selvatica sul territorio regionale. Modifiche alla l.r. 3/1994).

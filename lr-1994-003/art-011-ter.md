@@ -2,7 +2,7 @@ Art. 11 ter - Comitato di gestione e Presidente dell'ATC
 1. Il Comitato di gestione dell'ATC è composto da dieci membri, di cui:
 a) tre designati dalle organizzazioni professionali agricole maggiormente rappresentative a livello nazionale, ove presenti in forma organizzata sul territorio del comprensorio; ciascuna delle organizzazioni designa un rappresentante;
 b) tre designati dalle associazioni venatorie riconosciute a livello nazionale, ove presenti in forma organizzata sul territorio del comprensorio, in proporzione alla rispettiva documentata consistenza associativa a livello di ATC;
-c) due designati, secondo le modalità definite con deliberazione della Giunta regionale, dalle associazioni di protezione ambientale presenti in forma organizzata sul territorio del comprensorio e riconosciute ai sensi dell'articolo 13 della legge 8 luglio 1986, n. 349 (Istituzione del Ministero dell'Ambiente e norme in materia di danno ambientale);
+c) due designati, secondo le modalità definite con deliberazione della Giunta regionale, dalle associazioni di protezione ambientale presenti in forma organizzata sul territorio del comprensorio e riconosciute ai sensi dell' articolo 13 della legge 8 luglio 1986, n. 349(Istituzione del Ministero dell'Ambiente e norme in materia di danno ambientale);
 d) due individuati dal Consiglio regionale tra sindaci, assessori e consiglieri dei comuni ricadenti nel comprensorio.
 2. I membri del Comitato di gestione di cui al comma 1, lettere a), b) e c), sono scelti tra la generalità dei proprietari o conduttori di fondi inclusi nell'ATC, tra i cacciatori iscritti, tra gli appartenenti alle associazioni ambientali residenti nel comprensorio.
 3. Abrogato.

@@ -11,4 +11,4 @@ g) le aree di addestramento e allenamento dei cani;
 h) le zone in cui sono collocabili gli appostamenti fissi;
 i) per ciascuna specie di ungulati le aree ove la gestione è di tipo conservativo, denominate "aree vocate" e le aree dove la gestione è di tipo non conservativo, denominate "aree non vocate";
 j) tutte le ripartizioni del territorio necessarie per l'organizzazione del prelievo venatorio;
-k) i parchi nazionali e le aree protette di cui alla legge regionale 19 marzo 2015, n. 30 (Norme per la conservazione e la valorizzazione del patrimonio naturalistico-ambientale regionale. Modifiche alla l.r. 24/1994, alla l.r. 65/1997, alla l.r. 24/2000 ed alla l.r. 10/2010).
+k) i parchi nazionali e le aree protette di cui alla legge regionale 19 marzo 2015, n. 30(Norme per la conservazione e la valorizzazione del patrimonio naturalistico-ambientale regionale. Modifiche alla l.r. 24/1994, alla l.r. 65/1997, alla l.r. 24/2000ed alla l.r. 10/2010).

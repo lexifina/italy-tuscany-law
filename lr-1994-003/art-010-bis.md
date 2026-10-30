@@ -4,7 +4,7 @@ Art. 10 bis - Comitato scientifico regionale sulla fauna selvatica
 a) quattro esperti designati dal Presidente della Giunta regionale;
 b) tre esperti designati dalle organizzazioni professionali agricole maggiormente rappresentative a livello nazionale ove presenti in forma organizzata sul territorio regionale. Ciascuna organizzazione designa un rappresentante;
 c) tre esperti designati dalle organizzazioni venatorie maggiormente rappresentative a livello regionale, presenti in forma organizzata sul territorio e riconosciute a livello nazionale;
-d) due esperti designati, secondo modalità definite con delibera di Giunta regionale, dalle associazioni di protezione ambientale presenti in forma organizzata sul territorio regionale e riconosciute ai sensi dell'articolo 13 della legge 8 luglio 1986, n. 349 (Istituzione del Ministero dell'ambiente e norme in materia di danno ambientale);
+d) due esperti designati, secondo modalità definite con delibera di Giunta regionale, dalle associazioni di protezione ambientale presenti in forma organizzata sul territorio regionale e riconosciute ai sensi dell' articolo 13 della legge 8 luglio 1986, n. 349(Istituzione del Ministero dell'ambiente e norme in materia di danno ambientale);
 e) due esperti designati congiuntamente dagli ATC.
 3. Il comitato è nominato dal Presidente della Giunta regionale previa designazione da parte dei soggetti di cui al comma 2. Il comitato può essere nominato in presenza di più della metà delle designazioni, fatte salve le successive integrazioni.
 4. Il comitato resta in carica per la durata della legislatura e si riunisce su convocazione del Presidente della Giunta regionale.
