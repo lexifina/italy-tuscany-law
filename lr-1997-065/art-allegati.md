@@ -1,0 +1,2 @@
+Allegati Allegato cartografico:
+omissis
