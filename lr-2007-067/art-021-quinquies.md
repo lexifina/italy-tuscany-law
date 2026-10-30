@@ -1,0 +1,9 @@
+Art. 21 quinquies - Interventi sul sistema aeroportuale
+1. Al fine di sviluppare il sistema aeroportuale toscano in attuazione degli strumenti di pianificazione e programmazione regionale, sono previsti interventi integrati per il periodo 2008/2010. Per l'anno 2008 è autorizzata la spesa di euro 2 milioni, da destinare alle società di gestione degli aeroporti per spese di investimento coerenti rispetto al quadro degli orientamenti comunitari di settore.
+2. Per gli anni 2009/2010 si provvede con legge di bilancio, sulla base dei programmi attuativi regionali del Fondo aree sottoutilizzate (FAS).
+3. Le risorse di cui al presente articolo sono assegnate con deliberazione della Giunta regionale sulla base delle proposte di intervento presentate dalle società di gestione, nel rispetto dei seguenti criteri:
+a) categoria dell'aeroporto e classificazione regionale dell'aeroporto;
+b) flussi di traffico;
+c) garanzia di continuità territoriale con l'isola d'Elba.
+4. La deliberazione della Giunta regionale definisce inoltre termini e modalità di rendicontazione dei contributi.
+5. All'onere di spesa di cui al comma 1 si provvede mediante lo stanziamento iscritto nella UPB 311 "Innovazione e sviluppo della rete delle infrastrutture di trasporto - Spese di investimento" del bilancio annuale 2008.
