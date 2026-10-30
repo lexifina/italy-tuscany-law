@@ -1,0 +1,30 @@
+Legge regionale
+22 luglio 2013
+39
+Disposizioni di carattere finanziario. Modifiche alla l.r. 66/2011 e alla l.r. 77/2012, nonché alla l.r. 60/1996, alla l.r. 32/2003 e alla l.r. 77/2004.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, commi terzo e quarto, della Costituzione;
+Visto l'articolo 4, comma 1, dello Statuto;
+Visto il decreto-legge 26 aprile 2013, n. 43 (Disposizioni urgenti per il rilancio dell'area industriale di Piombino, di contrasto ad emergenze ambientali, in favore delle zone terremotate del maggio 2012 e per accelerare la ricostruzione in Abruzzo e la realizzazione di interventi per Expo 2015), convertito, con modificazioni, dalla legge 24 giugno 2013, n. 71;
+Vista la legge regionale 29 luglio 1996, n. 60 (Disposizioni per l'applicazione del tributo speciale per il deposito in discarica dei rifiuti solidi di cui all'art. 3 della L. 28 dicembre 1995, n. 549);
+Vista la legge regionale 7 luglio 2003, n. 32 (Disciplina dell'impiego di sorgenti di radiazioni ionizzanti);
+Vista la legge regionale 27 dicembre 2004, n. 77 (Demanio e patrimonio della Regione Toscana. Modifiche alla legge regionale 21 marzo 2000, n. 39 "Legge forestale della Toscana");
+Vista la legge regionale 27 dicembre 2011, n. 66 (Legge finanziaria per l'anno 2012);
+Vista la legge regionale 27 dicembre 2012, n. 77 (Legge finanziaria per l'anno 2013);
+Visto il parere favorevole con una raccomandazione espresso dal Consiglio delle autonomie locali nella seduta del 10 luglio 2013;
+Considerato quanto segue:
+1. È necessario intervenire modificando l'articolo 23 bis della l.r. 60/1999 al fine di eliminare una sua errata formulazione introdotta dall'articolo 47 della l.r. 77/2012, che potrebbe ingenerare dubbi interpretativi;
+2. In coerenza con le analoghe misure già adottate nella legislazione regionale, è opportuno sopprimere l'indennità di presenza prevista dall'articolo 4, comma 3 bis, della l.r. 32/2003;
+3. Occorre intervenire sulla l.r. 77/2004 per renderla più idonea alle esigenze di valorizzazione del patrimonio regionale anche in attuazione della legge regionale 9 marzo 2012, n. 8, (Disposizioni urgenti in materia di alienazione e valorizzazione di immobili pubblici in attuazione dell'articolo 27 del decreto-legge 6 dicembre 2011, n. 201 "Disposizioni urgenti per la crescita, l'equità e il consolidamento dei conti pubblici), convertito, con modificazioni, dalla legge 22 dicembre 2011, n. 214"), fermi restando i limiti derivanti dalle leggi statali;
+4. È necessario fornire un sostegno alle microimprese per la sopravvivenza sul mercato ed il mantenimento dell'occupazione attraverso la concessione di piccoli prestiti, a tasso zero, rimborsabili secondo piani di restituzione della durata massima di sessanta mesi;
+5. È necessario allineare la distribuzione delle risorse stanziate dagli articoli 45 e 46 della l.r. 77/2012 con i cronoprogrammi attuali, garantendo specifici interventi rispetto ai ritardi attuativi, anche derivanti dal patto di stabilità;
+6. Al fine di dare attuazione all'intesa generale quadro tra Governo e Regione Toscana del 22 gennaio 2010 (Per il congiunto coordinamento e la realizzazione delle infrastrutture strategiche con indicazione delle principali priorità), riguardante l'individuazione delle opere per le quali l'interesse regionale è concorrente con il preminente interesse nazionale, per la parte relativa al sistema tangenziale di Lucca – viabilità est di Lucca, comprendente i collegamenti tra Ponte a Moriano e i caselli dell'A11 del Frizzone e di Lucca Est, è necessario prevedere il concorso finanziario della Regione all'attività di realizzazione delle opere suddette;
+7. Dato il ruolo strategico degli interporti di Guasticce e Prato per la realizzazione delle politiche regionali relative al trasporto merci, si rende necessario garantire un efficace sviluppo della gestione attraverso un rafforzamento patrimoniale delle società finalizzato a consentire gli investimenti previsti nei rispettivi piani industriali, previa valutazione di questi ultimi;
+8. Al fine di realizzare le finalità del d.l. 43/2013 convertito dalla l. 71/2013, e, in particolare, per assicurare la funzionalità del porto di Piombino, è necessario che la Regione Toscana concorra finanziariamente, insieme all'Autorità portuale di Piombino, alla realizzazione delle relative opere infrastrutturali;
+9. È opportuno destinare, in attuazione dell'articolo 8, comma 3, della l.r. 8/2012, alla realizzazione dell'equilibrio economico finanziario dell'accordo approvato con decreto del Presidente della Giunta regionale 18 novembre 2005, n. 210 (Accordo di programma per la realizzazione del Nuovo Presidio Ospedaliero delle Apuane - Ai sensi D.Lgs. 267/2000 e L.R. 76/1996. Approvazione), l'immobile ex GIL sito in Carrara in via Giovan Pietro, dopo il mutamento di destinazione d'uso previsto dall'accordo approvato con decreto del Presidente della Giunta Regionale 27 maggio 2013, n. 93, e la riacquisizione in proprietà al patrimonio regionale ai sensi di legge;
+10. Al fine di concorrere alle ulteriori necessità connesse all'organizzazione dei campionati mondiali di ciclismo 2013 in Toscana, è opportuno destinare delle somme al Comune di Firenze a titolo di anticipazione e al comitato organizzatore dei mondiali;
+11. È necessaria la rideterminazione della copertura annuale, per quota capitale e quota interessi, del rimborso delle anticipazioni di liquidità previste agli articoli 2 e 3 del decreto-legge 8 aprile 2013, n. 35 (Disposizioni urgenti per il pagamento dei debiti scaduti della pubblica amministrazione, per il riequilibrio finanziario degli enti territoriali, nonché in materia di versamento di tributi degli enti locali), convertito, con modificazioni, dalla legge 6 giugno 2013, n. 64;
+12. Al fine di consentire una rapida attivazione degli interventi previsti dalla presente legge risulta necessario disporre la sua entrata in vigore il giorno successivo alla data di pubblicazione sul Bollettino ufficiale della Regione Toscana;
+Approva la presente legge
