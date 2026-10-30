@@ -1,0 +1,3 @@
+Art. 7 bis Deroga alla disciplina relativa all'attribuzione delle risorse geotermiche
+1. Durante il periodo necessario alla trasformazione del Consorzio per lo sviluppo delle aree geotermiche s.c.r.l (Co.SviG) in società "in house" della Regione e, comunque, fino e non oltre il 31 dicembre 2022, le risorse di cui all'articolo 7, comma 2, lettere a) e b), che, ai sensi di tale norma, sono destinate al Co.Svig s.c.r.l. sono assegnate ai comuni delle aree geotermiche mediante la deliberazione della Giunta regionale di cui allo stesso articolo.
+2. Le risorse di cui al comma 1 sono erogate ai comuni delle aree geotermiche previa stipulazione di appositi accordi tra i singoli comuni beneficiari e la Regione.
