@@ -1,3 +1,3 @@
 Art. 106 bis - Norma di copertura finanziaria dell'articolo 64
-1. Il contributo di cui all'articolo 64 della l.r. 68/2011 è finanziato per l'annualità 2014 per l'importo di euro 3.500.000,00, a valere sull'UPB 111 "Azioni di sistema Regione-Enti locali – spese correnti" del bilancio di previsione 2014.
+1. Il contributo di cui all' articolo 64 della l.r. 68/2011 è finanziato per l'annualità 2014 per l'importo di euro 3.500.000,00, a valere sull'UPB 111 "Azioni di sistema Regione-Enti locali – spese correnti" del bilancio di previsione 2014.
 2. Agli oneri per gli esercizi successivi si fa fronte con legge di bilancio.
