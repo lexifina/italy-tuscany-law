@@ -1,0 +1,2 @@
+Art. 5 bis - Decongelamento dei prodotti in deposito o in esercizi di vendita al dettaglio ( 2/c )
+1. Nel caso in cui il decongelamento di molluschi cefalopodi venga effettuato in uno degli esercizi di cui agli artt. 4 , i locali devono essere dotati di un apposito reparto adibito a tale attività, dotato di vasche in acciaio inox con acqua corrente potabile. Tutte le altre specie ittiche devono essere decongelate in un frigorifero a temperatura non superiore a +4ºC.
