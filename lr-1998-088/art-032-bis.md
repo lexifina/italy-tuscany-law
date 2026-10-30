@@ -1,0 +1,4 @@
+Art. 32 bis - Norma finanziaria
+1. Agli oneri derivanti dall'articolo 25 comma 5, stimati in euro 2.100.000,00 per l'anno 2009, euro 2.000.000,00 per l'anno 2010 ed euro 1.900.000,00 per l'anno 2011, si fa fronte con le risorse stanziate sull'unità previsionale di base (UPB) 312 "Innovazione e sviluppo della rete delle infrastrutture di trasporto – Spese correnti" del bilancio di previsione 2009 e pluriennale 2009 – 2011.
+2. Agli oneri per gli esercizi successivi si fa fronte con legge di bilancio.
+3. Gli oneri derivanti dalla partecipazione della Regione agli investimenti infrastrutturali di cui all'articolo 25, comma 6, sono definiti sulla base degli stanziamenti previsti nel bilancio regionale.

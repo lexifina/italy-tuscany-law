@@ -1,0 +1,3 @@
+Art. 27 quater - Disposizioni particolari in materia di tramvie e funivie
+1. Nell'esercizio delle funzioni amministrative concernenti la realizzazione di tramvie e funicolari destinate al servizio di trasporto pubblico, i comuni procedono all'approvazione dei progetti definitivi delle opere, previa acquisizione del parere della Regione e della provincia, finalizzato alla verifica di coerenza dei progetti stessi rispetto agli atti della relativa programmazione.
+2. Il parere regionale di cui al comma 1, è vincolante in presenza di contributi regionali, anche a seguito di trasferimenti da programmi comunitari o nazionali, per la realizzazione o gestione delle opere.
