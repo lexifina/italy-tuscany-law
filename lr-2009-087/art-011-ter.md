@@ -1,0 +1,3 @@
+Art. 11 ter Modalità di finanziamento
+1. Le attività istituzionali a carattere continuativo di cui all'articolo 5 bis, comma 1, sono finanziate con un contributo annuale, con eventuali proiezioni pluriennali, a copertura dei costi che concorrono direttamente e indirettamente al loro svolgimento e il cui ammontare è definito con legge regionale di bilancio.
+2. Le attività istituzionali a carattere non continuativo di cui all'articolo 5 bis, comma 3, non coperte dal contributo di cui al comma 1, sono finanziate mediante l'erogazione di compensi il cui ammontare è determinato sulla base delle tariffe definite dal piano di attività e secondo le modalità stabilite dalla convenzione quadro di cui all'articolo 5 bis, comma 4.
