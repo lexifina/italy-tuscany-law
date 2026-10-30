@@ -1,0 +1,3 @@
+Art. 38 quinquies - Disposizioni per la prima applicazione della gestione patrimoniale e finanziaria
+1. Fino all'emanazione delle direttive di cui all'articolo 22, comma 2, lettera m), i bilanci di cui all'articolo 20 sono approvati secondo gli schemi e le modalità vigenti alla data di entrata in vigore della presente legge.
+2. Nelle more dell'approvazione dello statuto di cui all'articolo 12, la Giunta regionale, entro trenta giorni dalla data delle elezioni consortili, approva lo statuto provvisorio dei consorzi, in funzione dell'immediata operatività della prima assemblea.

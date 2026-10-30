@@ -1,0 +1,4 @@
+Art. 33 bis - Disposizioni transitorie per l'emissione dei ruoli relativi all'anno 2013
+1. I ruoli per il pagamento del contributo consortile relativo all'anno 2013 sono emessi sulla base dei piani di classifica e delle modalità di riparto vigenti alla data di entrata in vigore della presente legge.
+2. Nell'ambito dell'espletamento del proprio mandato, il commissario di cui all'articolo 33, comma 3, emette i ruoli per il pagamento del contributo consortile relativo all'anno 2013 per le unioni di comuni che svolgono le funzioni di bonifica di cui all'articolo 53 della legge regionale 5 maggio 1994, n. 34 (Norme in materia di bonifica).
+3. Il commissario, entro il 15 aprile 2013, stipula apposita convenzione con le unioni di comuni per la gestione dei fondi derivanti dalla emissione dei ruoli di cui al comma 2.

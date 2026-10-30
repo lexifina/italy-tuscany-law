@@ -1,0 +1,3 @@
+Art. 38 quater - Individuazione della sede legale e disposizioni in merito alle funzioni del direttore generale
+1. Nelle more dell'approvazione dello statuto di cui all'articolo 12, la sede legale del consorzio è individuata presso la sede del consorzio con maggiore carico contributivo, salvo diversa e successiva determinazione individuata nello statuto del consorzio.
+2. A decorrere dalla data di cui all'articolo 33, comma 1, e fino alla nomina del direttore generale, le funzioni di cui all'articolo 21 sono svolte, per ciascun nuovo consorzio, dal dirigente apicale avente maggiore anzianità di servizio dei consorzi di cui alla l.r. 34/1994 appartenenti al medesimo comprensorio.

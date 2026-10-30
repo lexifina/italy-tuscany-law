@@ -1,0 +1,3 @@
+Art. 34 bis - Partecipazione alle elezioni per i Comuni di Sestino e Badia Tedalda
+1. Fino a diversa determinazione del Consiglio regionale e previa intesa con la regione interessata, i proprietari degli immobili e dei terreni ricadenti nel territorio dei Comuni di Sestino e Badia Tedalda sono ammessi a partecipare alle elezioni degli organi del Consorzio 2 Alto Valdarno di cui all'articolo 7.
+2. Il Presidente della Giunta regionale con decreto detta specifici indirizzi e modalità per la partecipazione dei soggetti di cui al comma 1 alle prime elezioni degli organi del Consorzio 2 Alto Valdarno.

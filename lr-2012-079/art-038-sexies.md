@@ -1,0 +1,3 @@
+Art. 38 sexies Disposizioni transitorie per l'approvazione del bilancio di esercizio 2015
+1. L'assemblea consortile adotta il bilancio di esercizio dell'anno 2015, nel rispetto delle direttive di cui all'articolo 22, comma 2, lettera m), e delle disposizioni della presente legge, e li trasmette entro quindici giorni dalla loro adozione, corredati del parere del revisore dei conti, alla Giunta regionale. La Giunta regionale si esprime con parere vincolante entro i successivi sessanta giorni. Decorso tale termine i pareri si intendono acquisiti.
+2. Conformandosi alle eventuali osservazioni formulate dalla Giunta regionale nel parere di cui al comma 1, l'assemblea consortile approva il bilancio di esercizio dell'anno 2015 entro il 30 luglio 2016.

@@ -1,0 +1,2 @@
+Art. 23 bis Partecipazioni a società ed altri enti
+1. Fermo restando il piano di razionalizzazione delle società partecipate dai consorzi ai sensi del decreto legislativo 19 agosto 2016, n. 175 (Testo unico in materia di società a partecipazione pubblica), i consorzi di bonifica non possono, direttamente o indirettamente, costituire nuove società e detenere nuove partecipazioni in società a totale o parziale partecipazione pubblica o in altri enti.
