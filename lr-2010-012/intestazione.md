@@ -1,0 +1,13 @@
+Legge regionale
+15 febbraio 2010
+12
+Modifiche alla legge regionale 23 dicembre 2009, n. 77 (Legge finanziaria per l'anno 2010).
+REGIONE TOSCANA
+PREAMBOLO
+Vista la legge regionale 23 dicembre 2009, n. 77 (Legge finanziaria per l'anno 2010);
+Vista la legge 23 dicembre 2009, n. 191 (Disposizioni per la formazione del bilancio annuale e pluriennale dello Stato. Legge finanziaria 2010) e, in particolare, l'articolo 2, comma 187;
+Considerato quanto segue:
+1. In base alla l.191/2009 (legge finanziaria 2010), è stata disposta la cessazione del concorso statale al finanziamento delle comunità montane previsto dall'articolo 34 del decreto legislativo 30 dicembre 1992, n. 504 (Riordino della finanza degli enti territoriali, a norma dell'articolo 4 della L. 23 ottobre 1992, n. 421), la cui esatta portata è tuttavia ancora incerta, considerate le previsioni di cui all'articolo 2, comma 23, della l. 191/2009 e dell'articolo 4 del decreto-legge 25 gennaio 2010, n. 2 (Interventi urgenti concernenti enti locali e regioni);
+2. Con la sentenza n. 27 del 25 gennaio 2010, la Corte Costituzionale, relativamente al taglio delle risorse statali alle comunità montane operato con la legge 6 agosto 2008 n. 133 (Conversione in legge, con modificazioni, del decreto-legge 25 giugno 2008 n. 112, recante disposizioni urgenti per lo sviluppo economico, la semplificazione, la competitività, la stabilizzazione della finanza pubblica e la perequazione tributaria), ha confermato il proprio indirizzo, recentemente già ribadito con la sentenza n. 237 del 7 luglio 2009, legittimando e confermando la riduzione dei trasferimenti erariali alle comunità montane;
+3. Si rende pertanto necessario confermare il sostegno finanziario già assicurato alle comunità montane nell'anno 2009, prevedendo un ulteriore sostegno finanziario in relazione all'effettiva diminuzione di risorse statali destinate alle comunità montane nonché l'erogazione di contributi alle unioni di comuni costituite ai sensi degli articoli 14 e 27 della legge regionale 26 giugno 2008, n. 37 (Riordino delle Comunità Montane). Infatti, le suddette disposizioni statali producono effetti anche sui bilanci delle stesse unioni, quali soggetti subentranti in tutti i rapporti attivi e passivi delle disciolte comunità montane, per effetto dell'articolo 2 bis del decreto- legge 7 ottobre 2008 n. 154 (Disposizioni urgenti per il contenimento della spesa sanitaria e in materia di regolazioni contabili con le autonomie locali), convertito dalla legge 4 dicembre 2008 n. 189, nonché destinatarie di tutti i trasferimenti erariali già erogati alle soppresse comunità montane;
+Si approva la presente legge
