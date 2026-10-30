@@ -1,0 +1,3 @@
+Art. 6 bis
+1. Le associazioni di cui all' art. 4, entro tre mesi dalla conclusione dell'iniziativa di loro competenza, sono tenute ad inviare alla Giunta regionale il relativo rendiconto, corredato da una relazione sottoscritta dall'organo di controllo.
+2. Qualora i proventi derivanti dall'iniziativa, compresi quelli dei contratti di sponsorizzazione, cessione di marchio, e compartecipazione risultino superiori rispetto alle necessità di finanziamento dell'iniziativa stessa, le somme eccedenti sono versate, al netto degli oneri fiscali, alla Regione ed affluiscono al capitolo di entrata di cui all' art. 5, comma 1, con vincolo di destinazione per il finanziamento di analoghe iniziative di cui all' art. 1.
