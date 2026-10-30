@@ -1,0 +1,4 @@
+Art. 10 ter Controllo regionale sull'attuazione dei piani annuali degli interventi pubblici
+1. Gli enti competenti di cui all'articolo 3 ter, comma 1, trasmettono semestralmente alla Regione lo stato di attuazione degli interventi previsti nel piano annuale. Nel caso di interventi realizzati in amministrazione diretta ai sensi dell'articolo 12, comma 2, devono essere riportate le ore di lavoro del personale tecnico e amministrativo impiegato.
+2. La competente struttura della Giunta regionale verifica, anche tramite sopralluoghi, lo stato di attuazione del piano rispetto al cronoprogramma dei lavori.
+3. Eventuali ritardi nell'attuazione del piano annuale degli interventi, non dipendenti da cause di forza maggiore, comportano l'applicazione di penalità nella determinazione del contributo di cui all'articolo 10, comma 3 quater, da assegnare per l'annualità successiva, secondo parametri definiti con provvedimento della Giunta regionale.

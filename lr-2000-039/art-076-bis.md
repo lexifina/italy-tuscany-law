@@ -1,0 +1,4 @@
+Art. 76 bis - Ambito di applicazione
+1. La disciplina del presente capo si applica al MFP relativo alle specie elencate nell'allegato D e destinato ad interventi relativi all'imboschimento e al rimboschimento, nonché all'arboricoltura da legno.
+2. Non è soggetto alla disciplina del presente capo il MFP del quale sia provata la destinazione all'esportazione e riesportazione verso paesi terzi ed il MFP, sotto forma di postime e parti di piante, per il quale sia provato che non è destinato agli interventi di cui al comma 1.
+3. Qualora una ditta detenga o commercializzi a qualsiasi titolo materiali appartenenti alle specie di cui all'allegato D non destinati agli interventi di cui al comma 1 o destinati all'esportazione e riesportazione verso paesi terzi, è fatto obbligo di apporre sui materiali etichette recanti la dicitura "non per fini forestali" o "destinato all'esportazione verso paesi terzi".

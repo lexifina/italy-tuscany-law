@@ -1,0 +1,2 @@
+Art. 68 bis - Interventi ricadenti sul territorio di competenza di più enti
+1. Nel caso di interventi, opere o piani che interessano terreni ricadenti sul territorio di più enti, è competente l'ente nel cui territorio è posta la maggior parte della superficie interessata. L'ente competente comunica all'altro ente il procedimento in corso, ai fini dell'acquisizione dell'eventuale parere per la parte di competenza.

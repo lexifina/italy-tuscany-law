@@ -1,0 +1,4 @@
+Art. 3 ter - Enti competenti
+1. Le funzioni amministrative disciplinate dalla presente legge, salvo quanto previsto ai commi 2 e 3, sono di competenza delle unioni di comuni subentrate alle comunità montane ai sensi della legge regionale 26 giugno 2008, n. 37 (Riordino delle Comunità montane) e della legge regionale 27 dicembre 2011, n. 68 (Norme sul sistema delle autonomie locali), della Città metropolitana di Firenze ai sensi dell'articolo 5, comma 8 della l.r. 22/2015 e delle unioni di comuni di cui all'allegato D bis della l.r. 22/2015.
+2. Le funzioni di cui agli articoli 38, e 74, sono attribuite alle unioni di comuni di cui all'allegato D bis della l.r. 22/2015 e alla città metropolitana.
+3. Le funzioni di cui all'articolo 6, articolo 42, comma 5, articolo 70 ter e articolo 75 bis, sono svolte dai comuni.

@@ -1,0 +1,8 @@
+Art. 95 bis Clausola valutativa
+1. Entro un anno dall'entrata in vigore della l.r. 11/2018, la Giunta regionale invia alla commissione consiliare competente una relazione in cui viene evidenziato lo stato di implementazione delle disposizioni contenute agli articoli 19 bis, 19 ter e 74 bis e le criticità eventualmente emerse in sede di prima attuazione.
+2. Entro due anni dall'entrata in vigore della l.r. 11/2018 e successivamente con cadenza triennale, la Giunta regionale invia alla commissione competente una relazione in cui vengono riportati i principali risultati ottenuti rispetto all'obiettivo di favorire il recupero delle aree boschive e rispetto all'obiettivo di prevenzione degli incendi boschivi, in particolare la relazione contiene i seguenti elementi:
+a) numero di comunità del bosco, soggetti aderenti e superficie gestita;
+b) numero forme associate, percentuale di soggetti aderenti per ambito territoriale individuato e superficie gestita;
+c) numero di piani specifici di prevenzione AIB adottati, loro durata e superficie interessata;
+d) numero di controlli effettuati sul rispetto delle prescrizioni contenute nei piani AIB distinti per anno e per provincia ed esiti dell'attività di controllo, evidenziando le tipologie di irregolarità più frequentemente riscontrate;
+e) eventuali criticità emerse in sede di implementazione.
