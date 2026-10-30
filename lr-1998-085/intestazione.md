@@ -1,0 +1,5 @@
+Legge regionale
+26 novembre 1998
+85
+Attribuzione agli enti locali e disciplina generale delle funzioni e dei compiti amministrativi in materia di tutela della salute, servizi sociali, istruzione scolastica, formazione professionale, beni e attività culturali e spettacolo, conferiti alla Regione dal decreto legislativo 31 marzo 1998, n. 112 .
+REGIONE TOSCANA
