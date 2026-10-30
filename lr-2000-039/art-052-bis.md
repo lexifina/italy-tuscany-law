@@ -1,0 +1,3 @@
+Art. 52 bis Boschi vetusti
+1. Ai sensi dell'articolo 3, comma 2, lettera s bis), del d.lgs. 34/2018 sono considerati boschi vetusti le superfici boscate costituite da specie autoctone spontanee coerenti con il contesto biogeografico, con una biodiversità caratteristica conseguente all'assenza di disturbi per almeno sessanta anni e con la presenza di stadi seriali legati alla rigenerazione ed alla senescenza spontanee.
+2. Le procedure per il riconoscimento dello status di bosco vetusto sono definite con deliberazione della Giunta regionale, entro novanta giorni dall'entrata in vigore del presente articolo, in conformità alle disposizioni delle linee guida nazionali.

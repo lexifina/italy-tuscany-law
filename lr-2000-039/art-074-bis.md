@@ -1,5 +1,5 @@
 Art. 74 bis Piani specifici di prevenzione AIB
-1. Nelle aree individuate dal piano AIB sono approvati dalla Giunta regionale i piani specifici di prevenzione AIB riferiti a un periodo minimo di dieci anni. Il piano specifico di prevenzione può essere aggiornato nell'arco temporale della sua validità. Il regolamento forestale disciplina le modalità per la realizzazione dei piani specifici di prevenzione AIB.
+1. Nelle aree individuate dal piano operativo AIBsono approvati dalla Giunta regionale i piani specifici di prevenzione AIB riferiti a un periodo minimo di dieci anni. Il piano specifico di prevenzione può essere aggiornato nell'arco temporale della sua validità. Il regolamento forestale disciplina le modalità per la realizzazione dei piani specifici di prevenzione AIB.
 2. I piani specifici di prevenzione AIB di cui al comma 1 prevedono, in particolare:
 a) gli interventi colturali straordinari per migliorare gli assetti vegetazionali degli ambienti naturali e forestali;
 b) le opere e gli impianti destinati alla prevenzione ed estinzione degli incendi e la loro puntuale localizzazione.

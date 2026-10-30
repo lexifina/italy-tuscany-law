@@ -1,3 +1,4 @@
+Capo III Materiale forestale di propagazione
 Art. 76 bis - Ambito di applicazione
 1. La disciplina del presente capo si applica al MFP relativo alle specie elencate nell'allegato D e destinato ad interventi relativi all'imboschimento e al rimboschimento, nonché all'arboricoltura da legno.
 2. Non è soggetto alla disciplina del presente capo il MFP del quale sia provata la destinazione all'esportazione e riesportazione verso paesi terzi ed il MFP, sotto forma di postime e parti di piante, per il quale sia provato che non è destinato agli interventi di cui al comma 1.

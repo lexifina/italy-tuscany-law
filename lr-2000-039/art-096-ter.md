@@ -1,0 +1,2 @@
+Art. 96 ter Classe di rischio incendi boschivi
+1. Dalla data di entrata in vigore della legge regionale 20 agosto 2025, n. 49 (Gestione multifunzionale del bosco e degli ecosistemi forestali, sviluppo sostenibile, tutela e valorizzazione dell'ambiente, competenze ai fini del vincolo idrogeologico nei parchi e nelle riserve naturali regionali. Modifiche alle leggi regionali 39/2000, 30/2015 e 65/1997), la classe di rischio incendi boschivi dei comuni, per i boschi e le aree assimilate di cui all'articolo 3, è quella indicata nel piano operativo AIB di cui all'articolo 74.

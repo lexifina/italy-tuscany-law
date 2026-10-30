@@ -1,6 +1,6 @@
 Art. 70 quater - Interventi nell'ambito dell'AIB
 1. Nell'ambito dell'AIB sono individuate, in particolare, le seguenti attività:
-a) pianificazione, realizzazione e gestione di strutture ed infrastrutture per l'AIB, compreso gli interventi colturali per migliorare gli assetti vegetazionali degli ambienti naturali e forestali;
+a) pianificazione, realizzazione e gestione degli interventi di prevenzione così come definiti nel piano AIB comprendenti la pratica colturale e selvicolturale del fuoco prescritto come definito nel regolamento forestale;
 b) pianificazione, realizzazione e manutenzione degli interventi per la salvaguardia, il ripristino e per la ricostituzione delle aree percorse dal fuoco;
 c) gestione ed impiego dei mezzi, delle attrezzature e del personale utilizzati nell'AIB;
 d) pianificazione ed effettuazione dei servizi per il controllo del territorio e la lotta attiva agli incendi boschivi.
