@@ -1,0 +1,1 @@
+Articolo unico I confini tra i Comuni di Pescia e Uzzano sono rettificati, su concorde richiesta dei rispettivi consigli comunali, secondo la linea risultante dalla cartografia e dalla relazione descrittiva annessa alla presente legge.
