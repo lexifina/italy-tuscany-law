@@ -1,0 +1,5 @@
+TITOLO IV ter - Autorizzazione unica ambientale
+Art. 72 octies - Autorizzazione unica ambientale
+1. La Regione è l'autorità competente ai fini del rilascio, del rinnovo e dell'aggiornamento dell'autorizzazione unica ambientale (AUA) di cui al regolamento emanato con d.p.r. 59/2013, nel rispetto delle procedure e dei termini stabiliti nel medesimo decreto.
+2. Sul rispetto delle prescrizioni contenute nelle autorizzazioni di cui al comma 1 la struttura regionale competente esercita le funzioni di controllo avvalendosi dell'ARPAT, nelle forme e con le modalità previste dalla l.r. 30/2009.
+3. La Giunta regionale individua una o più strutture competenti al rilascio, rinnovo e aggiornamento dell'autorizzazione unica ambientale, nonché allo svolgimento delle funzioni di controllo di cui al comma 2. La struttura individuata provvede all'espletamento delle procedure di cui al regolamento emanato con d.p.r. 59/2013 ed al coordinamento degli apporti istruttori delle strutture competenti in relazione ai singoli titoli sostituiti da tale autorizzazione unica.

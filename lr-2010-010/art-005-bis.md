@@ -1,0 +1,4 @@
+Art. 5 bis - Atti di governo del territorio soggetti a VAS
+1. La Regione, la città metropolitana, le province, le unioni di comuni e i comuni, nell'ambito della rispettiva competenza, provvedono all'effettuazione della VAS sugli atti di cui agli articoli 10 e 11 della legge regionale 10 novembre 2014, n. 65 (Norme per il governo del territorio).
+2. Non sono sottoposti a VAS né a verifica di assoggettabilità i piani attuativi, comunque denominati, che non comportino variante, quando lo strumento sovraordinato sia stato sottoposto a VAS e lo stesso strumento definisca l'assetto localizzativo delle nuove previsioni e delle dotazioni territoriali, gli indici di edificabilità, gli usi ammessi e i contenuti plano-volumetrici, tipologici e costruttivi degli interventi, dettando i limiti e le condizioni di sostenibilità ambientale delle trasformazioni previste.
+3. Le varianti agli atti di cui al comma 1 sono soggette a VAS ai sensi dell'articolo 5, comma 2, lettera b bis).
