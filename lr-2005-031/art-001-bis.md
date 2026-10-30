@@ -1,0 +1,3 @@
+Art. 1 bis Tutela dell'affidamento e della buona fede
+1. I rapporti tra contribuente e amministrazione regionale sono improntati al principio della collaborazione e della buona fede.
+2. Non sono irrogate sanzioni amministrative pecuniarie o richiesti interessi moratori al contribuente, qualora egli si sia conformato a indicazioni contenute in atti dell'amministrazione regionale, ancorché successivamente modificate dall'amministrazione medesima, o qualora il suo comportamento risulti posto in essere a seguito di fatti direttamente conseguenti a ritardi, omissioni od errori dell'amministrazione stessa.
