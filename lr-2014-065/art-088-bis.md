@@ -1,2 +1,2 @@
-Art. 88 bis - Disposizioni particolari per l'approvazione del piano di indirizzo territoriale
+Art. 88 bis Disposizioni particolari per l'approvazione del piano di indirizzo territoriale
 1. La proposta del PIT e le eventuali proposte di variante a detto piano sono adottate dalla Regione previa acquisizione del parere della Città metropolitana di Firenze, che si esprime entro trenta giorni dalla comunicazione sui profili che riguardano il territorio della città medesima. Decorso inutilmente il termine, la Regione procede all'adozione della proposta.

@@ -1,4 +1,4 @@
-Art. 153 ter - Commissione regionale per la valutazione della compatibilità paesaggistica delle attività estrattive. Composizione, durata. Comitato consultivo
+Art. 153 ter Commissione regionale per la valutazione della compatibilità paesaggistica delle attività estrattive. Composizione, durata. Comitato consultivo
 1. La commissione è nominata con decreto del Presidente della Giunta regionale e resta in carica cinque anni. Essa è composta da:
 a) un presidente, nominato dal Presidente della Giunta regionale;
 b) tre dirigenti preposti, rispettivamente, alle strutture regionali competenti in materia di paesaggio, attività estrattive e assetto idrogeologico individuati in ragione del loro ufficio o loro delegati;
