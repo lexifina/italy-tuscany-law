@@ -1,0 +1,3 @@
+Art. 9 bis - Attività di segreteria
+1. La Rete dispone di una segreteria che svolge compiti di supporto tecnico e organizzativo.
+2. La segreteria della Rete è collocata presso la Regione o uno dei soggetti pubblici della Rete; il personale necessario all'attività della segreteria può essere messo a disposizione dalla Regione o dai soggetti pubblici della Rete anche tramite comando di personale.
