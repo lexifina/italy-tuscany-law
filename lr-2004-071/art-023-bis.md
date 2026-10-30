@@ -1,0 +1,3 @@
+Art. 23 bis - Interventi a favore della Fondazione Mediateca regionale toscana
+1. La Giunta regionale è autorizzata ad erogare alla Fondazione Mediateca Regionale Toscana, costituita ai sensi della legge regionale 2 maggio 1983, n. 20 (Costituzione della Fondazione Mediateca Regionale Toscana) la somma di euro 300.000,00 a titolo di incremento del fondo di dotazione della predetta fondazione, da destinare ad interventi di ristrutturazione ed implementazione del proprio apparato informatico e tecnologico.
+2. All'onere di spesa di cui al comma 1 si provvede mediante lo stanziamento iscritto nella UPB 632 "Promozione e sviluppo della cultura - spese di investimento" del bilancio di previsione 2005/2007 - annualità 2005.

@@ -1,0 +1,4 @@
+Art. 23 ter - Contributo in favore della Fondazione Toscana per la prevenzione dell'usura - ONLUS
+1. Per l'anno 2005 è autorizzato un contributo di euro 51.000,00 in favore della "Fondazione Toscana per la prevenzione dell'usura - ONLUS" con sede presso l'Arciconfraternita di Misericordia di Siena, quale sostegno alla realizzazione del progetto di prevenzione dell'usura e del sovraindebitamento.
+2. Il contributo è erogato con vincolo di destinazione; al termine dell'esercizio finanziario la Fondazione Toscana per la prevenzione dell'usura - ONLUS presenta alla Giunta regionale una relazione complessiva sull'attività svolta, dando atto dell'utilizzazione del contributo.
+3. All'onere di spesa di cui al comma 1 si provvede mediante lo stanziamento iscritto al pertinente capitolo della UPB 112 "Interventi regionali per la sicurezza della comunità toscana - spese correnti" del bilancio di previsione 2005/2007 - annualità 2005.

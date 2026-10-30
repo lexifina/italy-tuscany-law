@@ -1,0 +1,13 @@
+Art. 27 bis - Interventi per il completamento dei processi di riorganizzazione e di innovazione organizzativa della struttura operativa e della dirigenza regionale
+1. Al fine di sostenere il completamento dei processi di innovazione e di riorganizzazione della struttura operativa e della dirigenza regionale, avviati ai sensi della legge regionale 5 agosto 2003, n. 44(Ordinamento della dirigenza e della struttura operativa della Regione. Modifiche alla legge regionale 17 marzo 2000, n. 26"Riordino della legislazione regionale in materia di organizzazione e personale"), nonché per valorizzare le professionalità del personale nel quadro del nuovo assetto istituzionale, sono stanziati per le annualità 2005 e 2006 i seguenti importi:
+a) euro 4.188.000,00, comprensivi degli oneri riflessi, per l'anno 2005;
+b) euro 5.540.000,00, comprensivi degli oneri riflessi, per l'anno 2006.
+2. Gli importi di cui al comma 1, aumentati di ulteriori euro 161.000,00, sia per l'anno 2005 che per l'anno 2006, già disponibili nella UPB 711 "Funzionamento della struttura regionale - spese correnti", vanno ad incrementare:
+a) le risorse decentrate previste dall'articolo 31, comma 2, del contratto collettivo nazionale di lavoro (CCNL) 22 gennaio 2004 (CCNL del personale del comparto delle regioni e delle autonomie locali per il quadriennio normativo 2002-2005 e per il biennio economico 2002-2003), nel modo seguente:
+1) euro 2.000.000,00 per l'anno 2005;
+2) euro 2.000.000,00 per l'anno 2006;
+b) le risorse decentrate previste dall'articolo 31, comma 3 del CCNL di cui alla lettera a), nel modo seguente:
+1) euro 1.258.000,00 per l'anno 2005;
+2) euro 2.258.000,00 per l'anno 2006.
+3. L'ulteriore importo di euro 264.000,00, già disponibile nella UPB 711 "Funzionamento della struttura regionale - spese correnti" va ad incrementare sia per l'anno 2005 che per l'anno 2006 le risorse previste dall'articolo 26 del CCNL 23 dicembre 1999 (CCNL relativo all'area della dirigenza del comparto delle regioni e delle autonomie locali) ed è destinato a finanziare gli istituti previsti dagli articoli 27 e 29 del CCNL 23 dicembre 1999 (CCNL per il quadriennio normativo 1998-2001 e per il biennio economico 1998-1999 relativo all'area della dirigenza del comparto delle Regioni e delle Autonomie locali).
+4. Gli oneri di cui al comma 1 trovano copertura finanziaria nella UPB 711 "Funzionamento della struttura regionale - spese correnti" del bilancio di previsione 2005/2007 - annualità 2005 e 2006, approvato con legge regionale 20 dicembre 2004, n. 72 (Bilancio di previsione per l'anno finanziario 2005 e bilancio pluriennale 2005-2007).
