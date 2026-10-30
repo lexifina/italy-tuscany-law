@@ -1,0 +1,3 @@
+Art. 3 bis Contributi straordinari ad altri soggetti privati danneggiati
+1. La Giunta regionale è autorizzata ad erogare un contributo straordinario di euro 8.000,00 in favore dei soggetti privati diversi dalle persone fisiche, non esercenti attività d'impresa se non in via accessoria e strumentale, che hanno segnalato danni nell'ambito della procedura di ricognizione del fabbisogno per gli interventi di ripristino di cui all'articolo 5, comma 2, lettera d) della l. 225/1992.
+2. La Giunta regionale definisce le modalità di determinazione, assegnazione ed erogazione del contributo straordinario di cui al presente articolo.
