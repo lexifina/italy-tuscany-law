@@ -1,0 +1,3 @@
+Art. 18 bis Disposizioni transitorie relative al patrimonio edilizio esistente nelle more dell'aggiornamento del piano di protezione civile comunale
+1. Qualora le condizioni di cui all'articolo 3, comma 5, lettera f), non siano ricomprese nel piano di protezione civile comunale vigente, nelle more dell'aggiornamento del piano medesimo, la misura è individuata con apposito atto del comune.
+2. L'atto di cui al comma 1 specifica le misure per prevenire i danni in caso di evento alluvionale sugli immobili, oggetto degli interventi di cui all'articolo 3, comma 3, ed è recepito nell'aggiornamento del piano di protezione civile.
