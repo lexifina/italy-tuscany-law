@@ -1,0 +1,2 @@
+Art. 6 bis Acquisizione in inventario delle opere per le quali non è reperito il certificato di collaudo
+1. Le opere pubbliche di proprietà regionale per le quali non è reperito il certificato finale di collaudo sono assunte in inventario sulla base di un atto, redatto da tecnici abilitati al collaudo, che ne verifichi la funzionalità in relazione alla categoria di appartenenza e ne definisca il livello di sicurezza a garanzia della pubblica incolumità tenuto conto del livello di conoscenza delle caratteristiche tecniche dell'opera.
