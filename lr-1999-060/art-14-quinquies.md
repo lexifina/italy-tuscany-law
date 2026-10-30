@@ -1,0 +1,4 @@
+14 quinquies - Programma di attività
+1. L'attività dell'ARTEA si svolge sulla base di un programma annuale di attività, con proiezione triennale, la cui proposta viene elaborata e trasmessa ogni anno dal Direttore alla Giunta regionale entro il 30 novembre.
+2. Entro i termini previsti per l'invio della richiesta di parere al Consiglio regionale sul bilancio preventivo economico di cui all'articolo 15, commi 3 e 4, la Giunta regionale provvede all'approvazione del programma di attività, previa verifica del rispetto degli indirizzi regionali di cui all'articolo 14 ter e lo trasmette al Consiglio regionale.
+3. La Giunta regionale prescrive al Direttore dell'ARTEA la modifica del programma di attività nel caso in cui ciò si renda necessario al fine di garantire l'allineamento dello stesso al bilancio preventivo economico approvato ai sensi dell'articolo 15, comma 5, a seguito del parere del Consiglio regionale.
