@@ -1,0 +1,5 @@
+Art. 22 bis - Sistema di riconoscimento dei soggetti certificatori e degli ispettori degli impianti termici
+1. La Regione istituisce un sistema di riconoscimento degli organismi e dei soggetti a cui affidare le attività di ispezione sugli impianti termici e di attestazione della prestazione energetica degli edifici, tenuto conto dei requisiti previsti dalla normativa statale e comunitaria in materia di libera circolazione dei servizi, di seguito indicato come "sistema di riconoscimento".
+2. Il sistema di riconoscimento, gestito nell'ambito del sistema informativo regionale sull'efficienza energetica di cui all'articolo 23 ter, è costituito da appositi elenchi, contenenti i nominativi degli organismi e dei soggetti che, in base alla normativa statale e comunitaria di riferimento, svolgono le attività di cui al comma 1.
+3. La Regione promuove programmi per la qualificazione, formazione e aggiornamento professionale degli organismi e dei soggetti di cui al comma 1.
+4. Gli organismi e i soggetti di cui al comma 1, accedono al sistema informativo regionale sull'efficienza energetica, secondo le modalità indicate nell'articolo 23 quater.

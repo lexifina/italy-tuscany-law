@@ -1,0 +1,2 @@
+Art. 38 bis - Disposizioni transitorie per gli elettrodotti già autorizzati
+1. Entro il 31 dicembre 2010, i gestori degli elettrodotti con tensione non superiore a 150 chilovolt, già autorizzati alla data di entrata in vigore della l.r.71 /2009 comunicano alla Regione e ai comuni interessati i dati per il calcolo e l'ampiezza delle fasce di rispetto, determinate secondo i criteri contenuti nei decreti emanati ai sensi dell'articolo 4 della l. 36/2001.

@@ -1,0 +1,10 @@
+Art. 23 quater - Accesso al sistema informativo regionale sull'efficienza energetica
+1. Con le modalità e gli strumenti previsti dalle disposizioni regionali in materia di amministrazione elettronica e semplificazione, la Regione assicura l'accesso:
+a) ai proprietari degli immobili i cui dati di efficienza energetica siano stati trasmessi al sistema informativo;
+b) ai soggetti certificatori di cui all'articolo 22 bis;
+c) ai manutentori degli impianti termici;
+d) agli organismi ispettori di cui all'articolo 22 bis;
+e) ai notai per l'esercizio delle loro funzioni relative al trasferimento della proprietà di immobili;
+f) ai comuni e alle unioni dei comuni.
+2. L'accesso al sistema informativo regionale sull'efficienza energetica è assicurato attraverso l'infrastruttura di rete regionale di identificazione ed accesso prevista dalla l.r. 1/2004.
+3 . Con deliberazione della Giunta regionale sono stabilite le modalità di accesso al sistema informativo regionale sull'efficienza energetica ai sensi del comma 2.
