@@ -1,0 +1,3 @@
+Art. 51 bis -Modifiche all'articolo 6 della l.r. 42/1998
+1. Dopo il comma 7 bis dell'articolo 6 della legge regionale 31 luglio 1998, n. 42 (Norme per il trasporto pubblico locale) è inserito il seguente:
+"7 ter. Per soddisfare eventuali esigenze straordinarie sorte successivamente allo svolgimento della conferenza di cui al comma 5 in relazione alla domanda di mobilità relativa ai servizi minimi di cui all'articolo 16, comma 1, del d.lgs. 422/1997, la Giunta regionale può integrare le assegnazioni disposte in esito all'intesa raggiunta nella conferenza medesima nei limiti delle risorse disponibili in bilancio per il trasporto pubblico locale e comunque in misura non superiore al 2 per cento delle suddette assegnazioni.".

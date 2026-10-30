@@ -1,0 +1,5 @@
+Art. 70 quinquesdecies - Adesione alla Fondazione Strozzi
+1. La Regione Toscana è autorizzata ad aderire alla Fondazione Strozzi, di seguito denominata Fondazione, a partire dall'anno 2014, in qualità di partecipante sostenitore.
+2. Il contributo da erogarsi alla Fondazione in qualità di partecipante sostenitore è deliberato dalla Giunta regionale sulla base del programma di attività presentato dalla Fondazione.
+3. Per l'annualità 2014, il contributo è stabilito nella misura massima di euro 450.000,00.
+4. Agli oneri di cui al comma 1, si fa fronte con gli stanziamenti della UPB 631 "Promozione e sviluppo della cultura – spese correnti" del bilancio di previsione 2014. Agli oneri relativi alle annualità successive si provvede con legge di bilancio.

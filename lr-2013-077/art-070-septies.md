@@ -1,0 +1,3 @@
+Art. 70 septies - Contributo straordinario all'associazione Banco alimentare della Toscana – Onlus
+1. Al fine di favorire la promozione ed il sostegno delle politiche finalizzate ad attenuare le condizioni di disagio delle persone e delle famiglie tramite la redistribuzione delle eccedenze alimentari, e di assicurare la continuità con le azioni già intraprese, la Giunta regionale è autorizzata ad erogare, per l'anno 2014, un contributo straordinario di euro 50.000,00 in favore dell'associazione Banco alimentare della Toscana – Onlus.
+2. All'onere di spesa di cui al comma 1 si fa fronte con le risorse iscritte nell'UPB 221 "Programmi di iniziative regionali, sistema informativo ricerca e sviluppo – spese correnti" del bilancio di previsione 2014.

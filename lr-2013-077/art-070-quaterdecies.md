@@ -1,0 +1,4 @@
+Art. 70 quaterdecies - Interventi a sostegno dell'Autorità portuale di Piombino e dell'Elba
+1. Nelle more del rilascio della garanzia necessaria per la contrazione del finanziamento di cui all'articolo 46 quater della l.r. 77/2012 da parte dell'Autorità portuale di Piombino e dell'Elba, la Giunta regionale è autorizzata ad erogare, a titolo di anticipazione all'Autorità portuale di Piombino e dell'Elba, la somma di euro 50.000.000,00.
+2. L'anticipazione, senza interessi, è restituita nel termine massimo di sessanta giorni dall'avvenuto perfezionamento del contratto di finanziamento.
+3. All'onere di spesa di cui al comma 1, si fa fronte con contestuale pari previsione di entrata e di spesa, mediante lo stanziamento iscritto, per la parte entrata nella UPB 461 "Riscossione di crediti" e per la parte spesa, nella UPB 311 "Innovazione e sviluppo della rete delle infrastrutture di trasporto - spese di investimento"del bilancio di previsione 2014.
