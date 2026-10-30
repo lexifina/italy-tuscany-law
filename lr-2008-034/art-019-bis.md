@@ -1,0 +1,3 @@
+Art. 19 bis - Entrata in vigore e norma transitoria
+1. Le modifiche alla presente legge introdotte dalla legge regionale 25 marzo 2015, n. 34 (Disposizioni sui componenti del Collegio di garanzia statutaria. Modifiche alla l.r. 34/2008), sono efficaci dalla data di entrata in vigore della modifica all'articolo 57 dello Statuto approvata dal Consiglio regionale con prima deliberazione del 16 dicembre 2014 e con seconda deliberazione del 24 febbraio 2015.
+2. Il Collegio in carica alla data di cui al comma 1, decade con l'elezione del nuovo Collegio effettuata ai sensi dell'articolo 2, comma 2 e, comunque, trascorsi sei mesi dalla data di insediamento del Consiglio regionale della decima legislatura.

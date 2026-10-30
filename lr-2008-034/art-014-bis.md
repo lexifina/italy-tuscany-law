@@ -1,0 +1,5 @@
+CAPO III bis - Funzioni di consulenza
+Art. 14 bis - Consulenza in materia giuridico-istituzionale per il Consiglio regionale
+1. Il Presidente del Consiglio, direttamente o su iniziativa di altri organismi consiliari, può richiedere al Collegio di formulare, entro un termine assegnato, un parere su quesiti e temi di carattere giuridico-istituzionale di particolare rilievo, attinenti, in particolare, all'interpretazione ed applicazione delle disposizioni statutarie ed all'esercizio delle funzioni consiliari.
+2. I pareri di cui al comma 1, non possono essere richiesti su atti o comportamenti oggetto di giudizio di conformità allo Statuto, di conflitti di attribuzione, di ammissibilità e regolarità dei referendum.
+3. La struttura di assistenza giuridica e legislativa del Consiglio assicura la formulazione tecnica della richiesta di parere.
