@@ -1,0 +1,4 @@
+Art. 11 bis - Riscossione diretta
+1. In conformità di quanto previsto dall'articolo 24 del d.lgs. 446/1997, le somme dovute a seguito delle attività di controllo, liquidazione delle dichiarazioni e accertamento, accertamento con adesione, conciliazione giudiziale e contenzioso tributario di cui agli articolo 9, 10 e 11, espletate dall'Agenzia delle entrate in base alla convenzione stipulata ai sensi dell'articolo 8, sono riscosse direttamente dalla Regione.
+2. Le somme di cui al comma 1 comprendono gli importi dovuti a titolo d'imposta regionale, interessi e sanzioni.
+3. Le modalità di attuazione di quanto disposto dal presente articolo sono stabilite nella convenzione con l'Agenzia delle entrate di cui all'articolo 8.
