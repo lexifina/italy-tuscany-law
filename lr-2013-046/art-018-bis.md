@@ -1,0 +1,16 @@
+Art. 18 bis - Modalità di sostegno dei progetti ammessi
+1. Il sostegno dei progetti ammessi dall'Autorità può comprendere anche uno soltanto dei seguenti interventi:
+a) sostegno finanziario;
+b) supporto metodologico;
+c) patrocinio o supporto logistico e organizzativo, con particolare riferimento alle tecnologie dell'informazione e della comunicazione.
+2. Il sostegno ai progetti ammessi è:
+a) rateizzato, anche con una quota di anticipo;
+b) subordinato alla presentazione:
+1) dei rapporti periodici e finali del processo partecipativo;
+2) della documentazione analitica dei costi; la relazione finale del processo partecipativo e la documentazione analitica dei costi sono presentate, entro e non oltre, tre mesi dalla conclusione del processo partecipativo.
+c) sospeso, sino all'avvenuta regolarizzazione, nei modi e termini definiti in sede di ammissione, dei requisiti e degli elementi costitutivi dei criteri di priorità;
+d) soggetto a decadenza e ripetizione in caso di inosservanza insanabile delle condizioni di ammissione.
+3. La consegna all'Autorità della relazione intermedia del processo partecipativo costituisce condizione ineludibile per il pagamento della seconda rata di finanziamento del processo.
+4. La relazione finale del processo partecipativo e la documentazione analitica dei costi sono presentate, entro e non oltre, tre mesi dalla conclusione del processo partecipativo.
+5. La mancata presentazione della relazione finale entro tali termini annulla il dovere di pagamento dell'ultima rata del finanziamento da parte dell'Autorità e impedisce al soggetto proponente di presentare richieste di finanziamento ai bandi successivi.
+6. Per i processi partecipativi in corso tra la conclusione di un mandato dell'Autorità e la successiva nomina, la struttura del Consiglio regionale di supporto dell'Autorità effettua le verifiche di corrispondenza fra i progetti ammessi al finanziamento e quanto effettivamente realizzato, compresa l'ammissibilità delle spese effettuate, provvedendo alla conseguente proporzionale liquidazione di quei progetti che ottengono un riscontro positivo.

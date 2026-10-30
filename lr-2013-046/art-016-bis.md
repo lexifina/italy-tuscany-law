@@ -1,0 +1,7 @@
+Art. 16 bis - Domande presentate dalle imprese
+1. Le domande presentate nella categoria "domande presentate dalle imprese" possono essere presentate da aziende private, cooperative sociali e aziende pubbliche, in possesso della personalità giuridica e che non rientrino nella categoria "enti locali".
+2. Le domande delle imprese devono riguardare proprie progettazioni o interventi che presentino un rilevante impatto di natura ambientale, sociale od economica.
+3. Le domande non possono essere ammesse al finanziamento nei casi in cui, direttamente o indirettamente, i progetti abbiano la finalità di rendere più competitivi prodotti o servizi da immettere sul mercato.
+4. Le domande sono ammesse se presentano, oltre ai requisiti elencati nell'articolo 14, comma 2, i seguenti ulteriori requisiti:
+a) accessibilità di tutta la documentazione rilevante per il processo partecipativo;
+b) messa a disposizione del processo di risorse proprie, sia finanziarie che organizzative, di cui sia chiarita l'incidenza sul valore totale dei costi previsti per il processo.
