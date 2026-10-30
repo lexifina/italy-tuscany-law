@@ -1,0 +1,19 @@
+Legge regionale
+2 agosto 2016
+49
+Assistenza per gli obbligazionisti toscani danneggiati dalle crisi bancarie. Modifiche alla l.r. 82/2015.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, commi terzo e quarto, e l'articolo 119, commi primo e secondo, della Costituzione;
+Visto l'articolo 4 dello Statuto;
+Visto il decreto-legge 5 maggio 2016, n. 59 (Disposizioni urgenti in materia di procedure esecutive e concorsuali, nonché a favore degli investitori in banche in liquidazione.) convertito, con modificazioni, dalla legge 30 giugno 2016, n. 119;
+Vista la legge regionale 28 dicembre 2015, n. 82 (Disposizioni di carattere finanziario. Collegato alla legge di stabilità per l'anno 2016);
+Considerato quanto segue:
+1. Nel quadro delle procedure di risoluzione delle crisi bancarie disciplinate dal decreto legislativo 16 novembre 2015, n. 180 (Attuazione della direttiva 2014/59/UE del Parlamento europeo e del Consiglio, del 15 maggio 2014, che istituisce un quadro di risanamento e risoluzione degli enti creditizi e delle imprese di investimento e che modifica la direttiva 82/891/CEE del Consiglio, e le direttive 2001/24/CE, 2002/47/CE, 2004/25/CE, 2005/56/CE, 2007/36/CE, 2011/35/UE, 2012/30/UE e 2013/36/UE e i regolamenti (UE), n. 1093/2010 e (UE) n. 648/2012, del Parlamento europeo e del Consiglio), e dal decreto legislativo 16 novembre 2015, n. 181 (Modifiche del decreto legislativo 1° settembre 1993, n. 385 e del decreto legislativo 24 febbraio 1998, n. 58, in attuazione della direttiva 2014/59/UE del Parlamento europeo e del Consiglio, del 15 maggio 2014, che istituisce un quadro di risanamento e risoluzione degli enti creditizi e delle imprese di investimento e che modifica la direttiva 82/891/CEE del Consiglio, e le direttive 2001/24/CE, 2002/47/CE, 2004/25/CE, 2005/56/CE, 2007/36/CE, 2011/35/UE, 2012/30/UE e 2013/36/UE e i regolamenti (UE), n. 1093/2010 e (UE) n. 648/2012, del Parlamento europeo e del Consiglio), lo Stato ha introdotto disposizioni volte ad attuare programmi di risoluzione delle crisi nei confronti delle rispettive banche, tutte in situazione di amministrazione straordinaria e, nel contempo, ha dettato regole che hanno colpito gli obbligazionisti di tali banche;
+2. La l.r. 82/2015 ha introdotto, all'articolo 21, una forma di sostegno all'assistenza legale per gli obbligazionisti toscani danneggiati dalle situazioni di crisi in cui sono incorsi gli istituti bancari interessati dal riordino operato dallo Stato, stanziando, a tal fine, una somma pari ad euro 200.000,00;
+3. Il sopracitato articolo 21 della l.r. 82/2015 ha altresì stabilito che per accedere al contributo, destinato alle persone fisiche residenti in Toscana, occorre essere obbligazionisti delle banche coinvolte ed avere un valore dell'Indicatore della situazione economica equivalente (ISEE) inferiore a euro 40.000,00;
+4. Occorre modificare l'articolo 21, in quanto non tiene conto del mutato quadro giuridico che rende più corretto parlare di "azione risarcitoria o di tutela legale" anziché di sola "assistenza legale";
+5. Occorre, inoltre, intervenire, al fine di eliminare aggravi per i cittadini beneficiari della norma, sul sopracitato articolo 21 eliminando il riferimento all'ISEE;
+6. Si mantiene il rinvio alla deliberazione della Giunta regionale per la definizione dei criteri e delle modalità di erogazione del contributo, ma occorre altresì modificare le modalità di coinvolgimento delle associazioni dei consumatori e degli utenti, rendendoli parte maggiormente attiva nella procedura di sostegno agli obbligazionisti, indipendentemente che essi si siano rivolti ad associazioni iscritte all'elenco di cui all'articolo 4 della legge regionale 20 febbraio 2008, n. 9 (Norme in materia di tutela e difesa dei consumatori e degli utenti), ovvero ad associazioni non iscritte al medesimo elenco, o anche a legali privati;
+Approva la presente legge
