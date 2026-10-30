@@ -1,0 +1,4 @@
+Art. 239 bis Termine per l'approvazione dei piani attuativi dei bacini estrattivi delle Alpi Apuane
+1. I piani attuativi dei bacini estrattivi delle Alpi Apuane di cui all'articolo 113, sono approvati entro la data del 5 giugno 2019.
+1 bis. Il termine di cui al comma 1 è differito al 31 dicembre 2019 previo accordo con le autorità statali competenti.
+2. Fino all'approvazione dei piani attuativi dei bacini estrattivi delle Alpi Apuane e, comunque, non oltre il termine indicato al comma 1, trova applicazione la disciplina transitoria di cui all'Allegato 5, comma 10, della Disciplina del piano paesaggistico approvato con deliberazione del Consiglio regionale 27 marzo 2015, n. 37 (Atto di integrazione del piano di indirizzo territoriale "PIT" con valenza di piano paesaggistico. Approvazione ai sensi dell'articolo 19 della legge regionale 10 novembre 2014, n. 65 "Norme per il governo del territorio").

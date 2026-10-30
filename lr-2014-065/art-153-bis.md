@@ -1,0 +1,5 @@
+Art. 153 bis - Commissione regionale per la valutazione della compatibilità paesaggistica delle attività estrattive
+1. E' istituita la commissione regionale per la valutazione della compatibilità paesaggistica delle attività estrattive, con il. compito di. esprimere pareri nei casi previsti dal piano paesaggistico regionale, nonché nei casi previsti dall'articolo 113, comma 4 bis, al di fuori delle ipotesi per le quali sia richiesta l'autorizzazione paesaggistica, ai sensi dell'articolo 146 del Codice.
+2. I pareri della commissione sono obbligatori e vincolanti e devono essere rilasciati entro sessanta giorni. Il termine può essere sospeso per una sola volta e per un periodo non superiore a sessanta giorni, per l'acquisizione di integrazioni documentali.
+2 bis. Decorso inutilmente il termine di cui al comma 2, il parere si intende reso in senso favorevole.
+3. Per lo svolgimento della propria attività, la commissione si avvale di un comitato consultivo, costituito ai sensi dell'articolo 153 ter, commi 5 e 6.

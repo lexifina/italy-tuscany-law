@@ -1,0 +1,3 @@
+Art. 55 ter Piattaforma unica per la gestione dei procedimenti di formazione degli atti di governo del territorio (
+1. La piattaforma del sistema di gestione degli atti di governo del territorio è costituita dagli applicativi di ausilio alle diverse fasi del procedimento di formazione degli atti di governo del territorio, nonché da tutti gli altri applicativi orientati a coadiuvare l'azione amministrativa e progettati in conformità al regolamento di cui all'articolo 56.
+2. La piattaforma di cui al comma 1 costituisce il riferimento unico per la gestione del procedimento di adozione e di approvazione degli atti di governo del territorio, ai sensi dell'articolo 19 della l.r. 65/2014.

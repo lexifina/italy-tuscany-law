@@ -1,0 +1,6 @@
+Art. 55 bis Attività di telerilevamento
+1. La Regione, nell'ambito dell'infrastruttura per l'informazione territoriale, acquisisce i dati territoriali di base anche tramite tecniche di telerilevamento funzionali alle materie di propria competenza, secondo le seguenti tipologie di rilievi:
+a) rilievi periodici mediante acquisizione di dati territoriali effettuati con cadenza regolare finalizzati all'aggiornamento delle basi informative di cui all'articolo 55;
+b) rilievi per indagini specifiche mediante acquisizione di dati territoriali effettuati all'occorrenza su porzioni limitate del territorio regionale e finalizzati al monitoraggio di specifici fenomeni.
+2. La Giunta regionale, mediante propria deliberazione, detta indirizzi per l'attività di telerilevamento, quale supporto informativo fondamentale alle attività di aggiornamento della BIT.
+3. Con la deliberazione di cui al comma 2, la Regione provvede anche ai programmi di realizzazione della BIT, mediante le proprie strutture.

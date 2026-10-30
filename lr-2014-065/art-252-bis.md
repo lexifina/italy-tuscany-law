@@ -1,0 +1,2 @@
+Art. 252 bis - Disposizioni transitorie per la nomina della commissione regionale per la valutazione della compatibilità paesaggistica delle attività estrattive
+1. In sede di prima applicazione, la commissione regionale per la valutazione della compatibilità paesaggistica delle attività estrattive di cui all'articolo 153 bis ed il comitato consultivo di cui all'articolo 153 ter sono nominati entro trenta giorni dall'entrata in vigore del presente articolo.
