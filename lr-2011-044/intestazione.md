@@ -1,0 +1,23 @@
+Legge regionale
+21 settembre 2011
+44
+Disposizioni per il sostegno e il rilancio dell'economia toscana e per l'attuazione del progetto "Giovani sì". Modifiche alla legge regionale 29 dicembre 2010, n. 65 (Legge finanziaria per l'anno 2011).
+REGIONE TOSCANA
+PREAMBOLO
+Visto l'articolo 117, commi terzo e quarto, e l'articolo 119, commi primo e secondo, della Costituzione;
+Visto l'articolo 4, comma 1, lettera n), dello Statuto;
+Vista la legge regionale 5 giugno 1974, n. 32 (Istituzione di una società di diritto privato a prevalente partecipazione regionale Fidi-Toscana SpA.);
+Vista la legge regionale 17 luglio 2009, n. 37 (Sostegno della Regione Toscana alla trasformazione in banca di Fidi Toscana s.p.a.);
+Vista la legge regionale 29 dicembre 2010, n. 65 (Legge finanziaria per l'anno 2011);
+Considerato quanto segue:
+1. La Regione Toscana ha intrapreso una serie di azioni di sostegno e rilancio dell'economia volte a fornire aiuti e opportunità alle fasce più giovani della popolazione, secondo quanto delineato nel progetto "Giovani sì";
+2. Si è individuato in Fidi Toscana S.p.A., società partecipata dalla Regione Toscana, uno strumento operativo di particolare rilievo per supportare le azioni di rilancio e sostegno dell'economia;
+3. È pertanto necessario consentire a Fidi Toscana S.p.A., nell'ambito dell'attuazione del progetto "Giovani sì", di ampliare la propria sfera di attività, nelle more della sua trasformazione in banca prevista dalla l. r. 37/2009;
+4. Occorre, per l'anno 2011, dettare norme transitorie per la concessione semplificata dei contributi previsti dalla legge regionale 16 agosto 2001, n. 40 (Disposizioni in materia di riordino territoriale e di incentivazione delle forme associative di comuni), dalla legge regionale 27 luglio 2004, 39 (Norme a favore dei comuni montani e dei piccoli comuni in situazione di disagio. Modifiche alla legge regionale 7 maggio 1985, n. 57 "Finanziamenti per la redazione e l'attuazione di piani di recupero del patrimonio edilizio esistente". Modifiche alla legge regionale 2 novembre 1999, n. 58 "Norme sulla tutela dell'artigianato artistico e tradizionale toscano e disposizioni in materia di oneri contributivi per gli apprendisti artigiani") e dalla legge regionale 11 dicembre 2007, n. 66 (Servizi postali e di prossimità. Interventi di sostegno ai comuni disagiati), al fine di consentire al maggior numero di comuni che stanno dando attuazione al decreto-legge 31 maggio 2010, n. 78 (Misure urgenti in materia di stabilizzazione finanziaria e di competitività economica), convertito, con modificazioni, dalla legge 30 luglio 2010, n. 122, di beneficiare del sostegno della Regione;
+5. È necessario apportare alcune modifiche alla legge regionale 26 giugno 2008, n. 37 (Riordino delle Comunità montane), in linea con quanto già previsto dall'articolo 114 della l.r. 65/2010, al fine di semplificare il processo di trasformazione delle comunità montane in unioni di comuni nel 2011, di agevolare il percorso di adempimento dei comuni all'esercizio associato obbligatorio, mediante unione, di funzioni fondamentali entro il 31 dicembre 2011 e di ampliare le possibilità di accesso ai contributi di cui all'articolo 112, comma 1, della stessa l.r. 65/2010;
+6. È opportuno contribuire al finanziamento dei lavori di escavo del porto di Livorno, tramite la concessione di un contributo alla competente autorità portuale, in considerazione della valenza strategica del porto medesimo, che costituisce componente essenziale della rete dei porti toscani;
+7. Con la presente legge si incrementa per gli anni 2012 e 2013 il finanziamento per le misure a sostegno di interventi di rinnovamento del patrimonio strutturale e strumentale delle aziende sanitarie;
+8. In vista dello svolgimento in Toscana dei campionati mondiali di ciclismo nell'anno 2013, la Regione promuove iniziative di accompagnamento e propedeutiche alla manifestazione;
+9. Al fine del sostegno alle politiche per la montagna e alla creazione di nuove opportunità di sviluppo, e in particolare, con riferimento all'annualità 2011, per la risoluzione della particolare situazione di criticità venutasi a creare nella Montagna Pistoiese, soprattutto sul versante del turismo verde e bianco, anche ai fini di un miglioramento della viabilità e della condizioni di accesso agli impianti turistici, è necessario istituire un contributo per interventi straordinari a favore dei comuni montani;
+10. In considerazione della natura urgente degli interventi previsti dalla presente legge, è opportuna la sua entrata in vigore il giorno successivo alla data di pubblicazione sul Bollettino ufficiale della Regione Toscana;
+Approva la presente legge
