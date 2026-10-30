@@ -1,0 +1,6 @@
+Art. 8 quater Norma finanziaria relativa alle disposizioni del titolo II
+1. Per la copertura degli oneri finanziari derivanti dalla realizzazione delle iniziative di cui al titolo II, si fa fronte con gli stanziamenti del bilancio di previsione 2022-2023-2024 del Consiglio regionale nel modo seguente:
+- per un importo massimo di euro 50.000,00 imputabili all'esercizio 2022 alla Missione 14 "Sviluppo economico e competitività", Programma 03 "Ricerca ed innovazione" Titolo 1 "Spese correnti";
+- per un importo massimo di euro 50.000,00 imputabili all'esercizio 2023 alla Missione 14 "Sviluppo economico e competitività", Programma 03 "Ricerca ed innovazione" Titolo 1 "Spese correnti";
+- per un importo massimo di euro 50.000,00 imputabili all'esercizio 2024 alla Missione 14 "Sviluppo economico e competitività", Programma 03 "Ricerca ed innovazione" Titolo 1 "Spese correnti".
+2. Alla copertura degli oneri derivanti dall'applicazione della presente legge per le annualità successive si provvede con la deliberazione del Consiglio regionale che approva il proprio bilancio di previsione quantificandone il relativo onere.

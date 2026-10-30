@@ -1,0 +1,3 @@
+Art. 8 ter Programma e modalità organizzative delle iniziative per Toscana 2050
+1. L'Ufficio di presidenza del Consiglio regionale redige con deliberazione il programma delle iniziative culturali e di ricerca, tra cui in particolare l'istituzione di borse di studio e la sottoscrizione di convenzioni con i soggetti di cui all'articolo 8 bis, nonché degli eventi finalizzati alla configurazione e valorizzazione dell'immagine della Toscana del futuro; ne stabilisce le modalità organizzative ed il relativo finanziamento.
+2. Allo scopo di fornire un supporto nella programmazione e nella realizzazione delle iniziative di cui al comma 1, l'Ufficio di presidenza del Consiglio regionale può nominare un comitato scientifico con funzioni consultive e di proposta.

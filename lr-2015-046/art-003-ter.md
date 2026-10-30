@@ -1,0 +1,2 @@
+Art. 3 ter - Programmi e modalità organizzative delle celebrazioni istituzionali della Toscana
+1. L'Ufficio di presidenza del Consiglio regionale, su proposta del Presidente, entro il termine di trenta giorni precedenti ciascuna delle ricorrenze di cui all'articolo 3 bis, fornisce indirizzi agli uffici per la predisposizione dei relativi programmi celebrativi e approvazione dei relativi finanziamenti.
