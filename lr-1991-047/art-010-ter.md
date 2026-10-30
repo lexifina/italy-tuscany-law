@@ -1,0 +1,3 @@
+Art. 10 ter - Norma transitoria relativa ai procedimenti di cui al titolo I bis
+1. In fase di prima attuazione del procedimento di cui al titolo I bis, il termine per la presentazione delle domande di contributo per l'eliminazione delle barriere architettoniche nelle civili abitazioni dove sono residenti persone disabili è fissato al 31 dicembre 2004.
+2. A partire dalla data di entrata in vigore del regolamento regionale previsto dall' articolo 5 quater , cessano di avere efficacia gli articoli 8, 9, 10, 11 e 12 della l. 13/1989 per i nuovi procedimenti di concessione di contributi concernenti l'eliminazione di barriere architettoniche nelle civili abitazioni dove sono residenti persone disabili.

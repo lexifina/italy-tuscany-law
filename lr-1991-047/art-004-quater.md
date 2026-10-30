@@ -1,0 +1,2 @@
+Art. 4 quater - Formazione
+1. Nell'ambito della più vasta azione di formazione professionale, le Province promuovono e realizzano, anche in collaborazione con le Associazioni di tutela delle persone con handicap più rappresentative operanti sul territorio azioni formative sulle problematiche della progettazione per l'accessibilità, rivolte a coloro che intervengono direttamente sia nel ruolo di progettisti che in quello di autorizzazione e vigilanza.
