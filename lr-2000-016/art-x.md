@@ -1,0 +1,3 @@
+CAPO VII Disciplina nuovi servizi erogati in farmacia
+Servizi erogati dalle farmacie e modalità della loro erogazione
+1. La tipologia e le modalità di erogazione dei servizi erogabili in farmacia sono circoscritte ai servizi sanitari previsti dalla normativa vigente. Con riferimento alla diagnostica da sangue capillare, possono essere eseguiti solo i test effettuabili con attrezzature che possono essere utilizzate anche al di fuori di laboratori o di strutture sanitarie.

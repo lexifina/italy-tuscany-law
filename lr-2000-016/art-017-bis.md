@@ -1,4 +1,4 @@
-Art. 17 bis - Apertura di farmacie nei porti, aeroporti, stazioni ferroviarie e aree di servizio autostradale
+Art. 17 bis Apertura di farmacie nei porti, aeroporti, stazioni ferroviarie e aree di servizio autostradale
 1. La Regione, anche su istanza del comune, se non già presente, può istituire una farmacia:
 a) negli aeroporti civili a traffico internazionale;
 b) nelle stazioni ferroviarie dei comuni capoluogo di provincia;

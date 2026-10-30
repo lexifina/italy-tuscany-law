@@ -1,4 +1,4 @@
-Art. 18 bis -Composizione e nomina della commissione giudicatrice
+Art. 18 bis Composizione e nomina della commissione giudicatrice
 1. La commissione giudicatrice è composta:
 a) dal direttore generale della direzione generale Diritto alla salute e politiche di solidarietà o da suo delegato;
 b) da due funzionari dipendenti della Regione, dei quali almeno uno laureato in farmacia;
