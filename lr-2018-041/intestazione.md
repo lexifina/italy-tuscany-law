@@ -21,6 +21,7 @@ Vista la legge regionale 27 dicembre 2012, n. 79 (Nuova disciplina in materia di
 Vista la legge regionale 10 novembre 2014, n. 65 (Norme per il governo del territorio);
 Vista la legge regionale 28 dicembre 2015, n. 80 (Norme in materia di difesa del suolo, tutela delle risorse idriche e tutela della costa e degli abitati costieri);
 Visti i pareri favorevoli del Consiglio delle autonomie locali, espressi nelle sedute del 26 giugno 2017 e 18 giugno 2018 e le relative osservazioni;
+Visto il decreto legislativo 22 gennaio 2004, n. 42 (Codice dei beni culturali e del paesaggio, ai sensi dell'articolo 10 della legge 6 luglio 2002, n.137);
 Considerato quanto segue:
 1. A seguito del riordino istituzionale operato con la l.r. 22/2015 e del trasferimento dalle province alla Regione delle competenze relative alla tutela dei corsi d'acqua, nel rispetto delle norme comunitarie e nazionali di riferimento, si rende necessario disciplinare la gestione del rischio di alluvioni in relazione alle trasformazioni del territorio e alla tutela dei corsi d'acqua;
 2. È necessario chiarire che la gestione del rischio di alluvioni è l'insieme delle azioni volte a mitigare i danni conseguenti alle alluvioni ed è attuata attraverso interventi volti a ridurre la pericolosità e l'entità del fenomeno alluvionale, nonché la vulnerabilità dell'elemento soggetto ad allagamenti;
