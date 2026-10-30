@@ -1,0 +1,3 @@
+Art. 67 quinquies - Contributo straordinario alla Provincia di Grosseto
+1. Al fine di sostenere le spese per interventi di ristrutturazione della struttura ex Casa dello studente da adibire a centro polifunzionale con finalità di carattere sociale, la Giunta regionale è autorizzata a concedere alla Provincia di Grosseto, previa stipula di specifico accordo con la provincia medesima e con gli altri soggetti interessati, un contributo straordinario di euro 1.400.000,00 per l'anno 2015.
+2. Per l'attuazione di quanto previsto dal comma 1, è autorizzata la spesa di euro 1.400.000,00 per l'anno 2015, cui si fa fronte con gli stanziamenti dell'UPB 222 "Investimenti in ambito sociale – Spese di investimento" del bilancio di previsione 2015.

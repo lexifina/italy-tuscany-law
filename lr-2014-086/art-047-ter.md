@@ -1,0 +1,3 @@
+Art. 47 ter - Contributo straordinario in favore del Comune di Viareggio
+1. La Giunta regionale, in coerenza con gli strumenti di pianificazione e programmazione regionale, è autorizzata ad erogare, in favore del Comune di Viareggio, un contributo straordinario pari ad euro 100.000,00 al fine di garantire la continuità della presa in carico da parte dei comuni dei minori accolti nelle strutture, nonché la prosecuzione delle attività di supporto alla genitorialità.
+2. All'onere di spesa di cui al comma 1, si fa fronte con gli stanziamenti dell'UPB 232 "Programmi di intervento specifico relativi ai servizi sociali - Spese correnti" del bilancio di previsione 2015.

@@ -1,0 +1,4 @@
+Art. 67 ter - Contributo straordinario alla Diocesi di Firenze
+1. È assegnato un contributo straordinario una tantum di euro 200.000,00 alla Diocesi di Firenze, per il concorso alle spese sostenute per gli allestimenti e gli interventi da effettuare per la visita ufficiale di Papa Francesco nel mese di novembre 2015, in occasione del V convegno ecclesiale nazionale.
+2. Con deliberazione della Giunta regionale sono stabilite le condizioni e le modalità per l'assegnazione, l'erogazione e la rendicontazione del contributo di cui al comma 1.
+3. Per l'attuazione di quanto previsto al comma 1 è autorizzata la spesa di euro 200.000,00 per l'anno 2015 cui si fa fronte con gli stanziamenti dell'UPB 131 "Attività di carattere istituzionale - Spese correnti" del bilancio di previsione 2015.

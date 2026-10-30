@@ -1,0 +1,3 @@
+Art. 67 sexies - Contributo straordinario al Comune di Pisa
+1. Al fine di consentire la realizzazione di opere di arredo urbano integrate con percorsi ciclopedonali finalizzati al collegamento del parco di Cisanello, prospiciente l'ospedale di Pisa, con la ciclopista dell'Arno, la Giunta Regionale è autorizzata a erogare finanziamenti straordinari fino all'importo massimo di euro 200.000,00 al Comune di Pisa, previa stipula di apposito accordo.
+2. Per l'attuazione di quanto previsto dal comma 1, è autorizzata la spesa di euro 200.000,00 per l'anno 2015, cui si fa fronte con gli stanziamenti dell'UPB 341 "Azioni di sistema per il governo del territorio – Spese di investimento" del bilancio di previsione 2015.

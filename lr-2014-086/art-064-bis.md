@@ -1,0 +1,4 @@
+Art. 64 bis - Contributi straordinari a enti locali per la realizzazione e l'adeguamento di impianti sportivi
+1. La Giunta regionale è autorizzata a erogare un contributo straordinario di euro 1.200.000,00 al Comune di Coreglia Antelminelli per la realizzazione di un impianto di prioritario interesse regionale da destinare ad attività sportive e sociali e aggregative per il territorio comunale e per i comuni limitrofi.
+2. Con deliberazione della Giunta regionale sono disciplinate le condizioni e le modalità di erogazione e rendicontazione del contributo di cui al comma 1.
+3. Per l'attuazione di quanto previsto al comma 1, è autorizzata la spesa massima di euro 1.200.000,00 per l'anno 2015, cui si fa fronte con gli stanziamenti dell'UPB 623 "Investimenti e innovazione degli impianti per la pratica delle attività motorie – Spese di investimento" del bilancio di previsione 2015.
