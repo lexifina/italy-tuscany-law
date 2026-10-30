@@ -1,0 +1,73 @@
+# Legge regionale 24 febbraio 2005, n. 39 - Disposizioni in materia di energia.
+
+l.r. 39/2005 · 2 versions, from 2026-10-30 (latest in force: 2026-10-30) · <https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2005-02-24;39>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Articolo 1 | [art-001.md](art-001.md) | 0 |  |
+| Articolo 2 | [art-002.md](art-002.md) | 1 | 2026-10-30 |
+| Articolo 3 | [art-003.md](art-003.md) | 1 | 2026-10-30 |
+| Articolo 3 bis | [art-003-bis.md](art-003-bis.md) | 0 |  |
+| Articolo 3 ter | [art-003-ter.md](art-003-ter.md) | 1 | 2026-10-30 |
+| Articolo 4 | [art-004.md](art-004.md) | 0 |  |
+| Articolo 5 | [art-005.md](art-005.md) | 0 |  |
+| Articolo 6 | [art-006.md](art-006.md) | 0 |  |
+| Articolo 7 | [art-007.md](art-007.md) | 0 |  |
+| Articolo 8 | [art-008.md](art-008.md) | 0 |  |
+| Articolo 9 | [art-009.md](art-009.md) | 0 |  |
+| Articolo 10 | [art-010.md](art-010.md) | 1 | 2026-10-30 |
+| Articolo 10 bis | [art-010-bis.md](art-010-bis.md) | 0 |  |
+| Articolo 11 | [art-011.md](art-011.md) | 1 | 2026-10-30 |
+| Articolo 12 | [art-012.md](art-012.md) | 0 |  |
+| Articolo 13 | [art-013.md](art-013.md) | 1 | 2026-10-30 |
+| Articolo 13 bis | [art-013-bis.md](art-013-bis.md) | 1 | 2026-10-30 |
+| Articolo 13 quater | [art-013-quater.md](art-013-quater.md) | 1 | 2026-10-30 |
+| Articolo 13 quinquies | [art-013-quinquies.md](art-013-quinquies.md) | 1 | 2026-10-30 |
+| Articolo 13 ter | [art-013-ter.md](art-013-ter.md) | 1 | 2026-10-30 |
+| Articolo 14 | [art-014.md](art-014.md) | 1 | 2026-10-30 |
+| Articolo 15 | [art-015.md](art-015.md) | 0 |  |
+| Articolo 16 | [art-016.md](art-016.md) | 1 | 2026-10-30 |
+| Articolo 16 bis | [art-016-bis.md](art-016-bis.md) | 0 |  |
+| Articolo 17 | [art-017.md](art-017.md) | 1 | 2026-10-30 |
+| Articolo 18 | [art-018.md](art-018.md) | 1 | 2026-10-30 |
+| Articolo 18 bis | [art-018-bis.md](art-018-bis.md) | 0 |  |
+| Articolo 19 | [art-019.md](art-019.md) | 0 |  |
+| Articolo 20 | [art-020.md](art-020.md) | 0 |  |
+| Articolo 21 | [art-021.md](art-021.md) | 0 |  |
+| Articolo 22 | [art-022.md](art-022.md) | 1 | 2026-10-30 |
+| Articolo 22 bis | [art-022-bis.md](art-022-bis.md) | 0 |  |
+| Articolo 23 | [art-023.md](art-023.md) | 0 |  |
+| Articolo 23 bis | [art-023-bis.md](art-023-bis.md) | 1 | 2026-10-30 |
+| Articolo 23 octies | [art-023-octies.md](art-023-octies.md) | 1 | 2026-10-30 |
+| Articolo 23 quater | [art-023-quater.md](art-023-quater.md) | 0 |  |
+| Articolo 23 quinquies | [art-023-quinquies.md](art-023-quinquies.md) | 1 | 2026-10-30 |
+| Articolo 23 septies | [art-023-septies.md](art-023-septies.md) | 1 | 2026-10-30 |
+| Articolo 23 sexies | [art-023-sexies.md](art-023-sexies.md) | 1 | 2026-10-30 |
+| Articolo 23 ter | [art-023-ter.md](art-023-ter.md) | 1 | 2026-10-30 |
+| Articolo 24 | [art-024.md](art-024.md) | 0 |  |
+| Articolo 25 | [art-025.md](art-025.md) | 0 |  |
+| Articolo 26 | [art-026.md](art-026.md) | 0 |  |
+| Articolo 27 | [art-027.md](art-027.md) | 0 |  |
+| Articolo 28 | [art-028.md](art-028.md) | 0 |  |
+| Articolo 29 | [art-029.md](art-029.md) | 0 |  |
+| Articolo 30 | [art-030.md](art-030.md) | 0 |  |
+| Articolo 31 | [art-031.md](art-031.md) | 0 |  |
+| Articolo 32 | [art-032.md](art-032.md) | 0 |  |
+| Articolo 33 | [art-033.md](art-033.md) | 0 |  |
+| Articolo 34 | [art-034.md](art-034.md) | 0 |  |
+| Articolo 35 | [art-035.md](art-035.md) | 0 |  |
+| Articolo 36 | [art-036.md](art-036.md) | 0 |  |
+| Articolo 37 | [art-037.md](art-037.md) | 1 | 2026-10-30 |
+| Articolo 38 | [art-038.md](art-038.md) | 0 |  |
+| Articolo 38 bis | [art-038-bis.md](art-038-bis.md) | 0 |  |
+| Articolo 38 quater | [art-038-quater.md](art-038-quater.md) | 1 | 2026-10-30 |
+| Articolo 38 ter | [art-038-ter.md](art-038-ter.md) | 1 | 2026-10-30 |
+| Articolo 39 | [art-039.md](art-039.md) | 0 |  |
+| Articolo 39 bis | [art-039-bis.md](art-039-bis.md) | 0 |  |
+| Articolo 40 | [art-040.md](art-040.md) | 0 |  |
+| Articolo 40 bis | [art-040-bis.md](art-040-bis.md) | 1 | 2026-10-30 |
+| Articolo 40 ter | [art-040-ter.md](art-040-ter.md) | 1 | 2026-10-30 |
+| Articolo 41 | [art-041.md](art-041.md) | 1 | 2026-10-30 |
+| Articolo 42 | [art-042.md](art-042.md) | 0 |  |
+| Articolo 43 | [art-043.md](art-043.md) | 0 |  |
+| Intestazione | [intestazione.md](intestazione.md) | 0 |  |

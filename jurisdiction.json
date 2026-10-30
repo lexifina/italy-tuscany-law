@@ -1,0 +1,11 @@
+{
+  "path": "it-52",
+  "code": "IT-52",
+  "name": "Tuscany",
+  "level": "region",
+  "parent": "it",
+  "repo": "https://github.com/lexifina/italy-tuscany-law",
+  "build": "built: statute and regional laws (1332 acts, 1471 versions) from the Raccolta normativa of the Consiglio regionale della Toscana (current text only)",
+  "language": "it",
+  "sources": 1
+}
