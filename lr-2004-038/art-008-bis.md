@@ -1,0 +1,2 @@
+Art. 8 bis - Disposizioni relative al rilascio di permessi di ricerca in prossimità di altri permessi o concessioni
+1. In prossimità di permessi di ricerca e di concessioni in essere anche in riferimento ai territori dei comuni limitrofi, il comune competente non procede al rilascio di nuovi permessi qualora sia verificata in corso di istruttoria, anche in via presuntiva ovvero sulla base del quadro idrogeologico di dettaglio basato sui dati disponibili, la non sostenibilità in termini quantitativi e qualitativi.

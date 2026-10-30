@@ -1,0 +1,12 @@
+Art. 47 undecies Cause di sospensione e cessazione dell'attività di utilizzazione di acqua termale
+1. Ai sensi dell'articolo 2, commi 2 e 4, della l.r. 16/2000, le attività di cui all'articolo 47 septies possono essere sospese nei seguenti casi con atto del dipartimento di prevenzione dell'azienda USL competente per territorio:
+a) qualora sia rilevata la perdita dei requisiti minimi autorizzativi, di natura strutturale, tecnologica ed organizzativa, nonché minimi generali e specifici per cicli di cure termali, indicati nel regolamento di cui all'articolo 49;
+b) qualora sia rilevato il mancato adeguamento ai requisiti di cui all'articolo 18, comma 2, della legge regionale 2 novembre 2016, n. 74 (Disposizioni in materia di acque termali, Modifiche alla l.r. 38/2004);
+c) qualora sia rilevata la presenza di inquinanti chimici rispetto alla composizione individuata nell'atto di riconoscimento di cui all'articolo 47 octies, comma 1, lettera d), e microbiologici nell'acqua termale alla captazione o presso l'erogazione dell'acqua ai punti cura dello stabilimento termale;
+d) qualora sia rilevata presso lo stabilimento termale l'esistenza di carenze impiantistiche e strutturali di natura igienico sanitaria, di natura diversa rispetto a requisiti minimi di cui alla lettera a), che pregiudicano il corretto e sicuro esercizio delle attività;
+e) qualora il titolare dell'autorizzazione esegua operazioni sull'acqua termale diverse da quelle consentite all'articolo 47 bis;
+f) in caso di mancata ottemperanza alle prescrizioni specificamente dettate dal regolamento di cui all'articolo 49;
+g) qualora non siano ottemperate le disposizioni specifiche per le piscine termali di cui all'articolo 47 ter.
+2. Qualora ricorra una delle fattispecie di cui al comma 1, il dipartimento di prevenzione dell'azienda USL competente invia al titolare dell'autorizzazione apposito atto, con il quale sospende l'attività e prescrive l'eliminazione dell'irregolarità, entro un congruo termine, commisurato alla complessità degli interventi da realizzare, decorso inutilmente il quale, provvede alla segnalazione al competente ufficio della Giunta regionale per la revoca dell'autorizzazione.
+3. La revoca è pronunciata entro trenta giorni dalla segnalazione di cui al comma 2, previa contestazione dei motivi all'interessato, al quale viene fissato il termine di quindici giorni per la presentazione delle controdeduzioni.
+4. Si procede comunque alla revoca dell'autorizzazione in caso di rinuncia, decadenza o revoca della concessione disciplinata dal titolo II, capo I.

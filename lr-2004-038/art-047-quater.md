@@ -1,0 +1,9 @@
+Art. 47 quater Direttore sanitario
+1. Il direttore sanitario è responsabile dell'organizzazione e del buon funzionamento delle strutture e strumenti sanitari utilizzati, dei servizi igienico-sanitari, della corretta erogazione delle prestazioni sanitarie e vigila sull'applicazione delle vigenti disposizioni in materia di stabilimenti termali.
+2. Il direttore sanitario in particolare:
+a) assicura che ai singoli servizi sia preposto personale sanitario, tecnico e medico fornito dei titoli indispensabili per l'esercizio delle singole attività professionali;
+b) si accerta del funzionamento delle apparecchiature diagnostiche e terapeutiche installate nello stabilimento termale;
+c) effettua il controllo dei servizi e in particolare di quelli di disinfezione e sterilizzazione;
+d) raccoglie e coordina i dati statistici relativi alle cure termali erogate.
+3. Per lo svolgimento della funzione di direttore sanitario è richiesto il possesso dei requisiti previsti dalla normativa statale vigente.
+3 bis. Qualora negli stabilimenti termali si svolgano attività sanitarie di carattere non termale ai sensi dell'articolo 47 sexies, sono richiesti i requisiti di cui all'articolo 11, comma 5 quater, della legge regionale 5 agosto 2009, n. 51 (Norme in materia di qualità e sicurezza delle strutture sanitarie: procedure e requisiti autorizzativi di esercizio e sistemi di accreditamento).

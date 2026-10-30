@@ -1,0 +1,6 @@
+CAPO III bis Disposizioni relative all'utilizzazione delle acque termali
+Art. 47 bis Operazioni consentite
+1. L'utilizzazione delle acque termali deve, ove possibile, avvenire in prossimità della sorgente al fine di assicurare e mantenere le caratteristiche qualitative delle acque stesse, nel rispetto delle prescrizioni indicate nel provvedimento di concessione ai sensi dell'articolo 18, e relative alle aree di salvaguardia dei bacini imbriferi connessi alle aree di ricarica delle falde, delle sorgenti, dei pozzi e dei punti di presa.
+2. La sorgente o il punto di emergenza sono protetti contro ogni pericolo di inquinamento in conformità a quanto previsto dall'articolo 33, comma 1, e dall'articolo 42, commi 1 e 3.
+3. La captazione, le canalizzazioni ed i serbatoi sono realizzati con materiali adatti all'acqua termale, in modo da impedire qualsiasi modifica chimica, chimico-fisica, e microbiologica dell'acqua, e consentire una efficace e rapida sanificazione.
+4. Le operazioni consentite sulle acque termali sono esclusivamente quelle previste dall'articolo 33.

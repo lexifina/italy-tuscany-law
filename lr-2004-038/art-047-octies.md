@@ -1,0 +1,10 @@
+Art. 47 octies Condizioni per il rilascio dell'autorizzazione
+1. L'autorizzazione di cui all'articolo 47 septies è rilasciata esclusivamente in presenza delle seguenti condizioni:
+a) il richiedente sia in possesso della concessione mineraria per lo sfruttamento del giacimento acquifero in corso di validità o in corso di rinnovo o di valido contratto di somministrazione, in conformità a quanto previsto nella presente legge;
+b) siano rispettate le disposizioni di cui all'articolo 47 bis;
+c) siano rispettati i requisiti minimi autorizzativi, di natura strutturale, tecnologica ed organizzativa, indicati nel regolamento di cui all'articolo 49, in conformità a quanto previsto dagli accordi fra lo Stato e le regioni in materia;
+d) l'acqua minerale termale alla captazione ed erogata dai punti cura, utilizzata sia per cure interne, sia per cure esterne, deve essere conforme ai valori dei parametri valutati ed approvati nell'ambito del riconoscimento ministeriale dell'acqua termale, relativamente alla specificità terapeutica dell'acqua stessa;
+e) sia stato predisposto il piano di autocontrollo di cui all'articolo 47 quinquies.
+2. In relazione alle istanze di autorizzazione presentate dagli stabilimenti termali, le competenti strutture della Giunta regionale, nell'espletamento delle funzioni istruttorie, si avvalgono, per la verifica tecnica sul possesso dei requisiti previsti, della struttura organizzativa del dipartimento di prevenzione dell'azienda USL del territorio in cui è situato lo stabilimento termale.
+3. Il dipartimento di prevenzione di cui al comma 2, nello svolgimento della verifica, può coinvolgere anche altre strutture organizzative dell'azienda USL. Il coordinamento delle attività di verifica è svolto dal responsabile del dipartimento di prevenzione.
+4. Le competenti strutture della Giunta regionale, anche su istanza del dipartimento di prevenzione dell'azienda USL, possono disporre verifiche ogni qualvolta ne ravvisino la necessità, ai fini del buon andamento delle attività termali.
