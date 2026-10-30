@@ -1,0 +1,2 @@
+Art. 9 bis - Disposizioni per l'approvazione del primo piano regionale di coordinamento
+1. Entro dodici mesi dalla data di entrata in vigore della legge regionale 12 novembre 2013, n. 66(Affidamento, conservazione e dispersione delle ceneri derivanti dalla cremazione dei defunti. Modifiche alla l.r. 29/2004), la Giunta regionale presenta al Consiglio regionale per l'approvazione il primo piano regionale di coordinamento di cui all'articolo 6.
