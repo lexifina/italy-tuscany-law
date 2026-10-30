@@ -1,0 +1,20 @@
+Art. 6 bis Norma finanziaria per i contributi di cui all'articolo 2 bis
+1. All'onere di spesa di cui all'articolo 2 bis, fino a un massimo di euro 1.437.000,00 per l'anno 2025, euro 1.738.000,00 per l'anno 2026 ed euro 2.012.000,00 per l'anno 2027, si fa fronte con gli stanziamenti della Missione 8 "Assetto del territorio ed edilizia abitativa", Programma 01 "Urbanistica e assetto del territorio", Titolo 1 "Spese correnti" del bilancio di previsione 2025-2027.
+2. Ai sensi dell'articolo 14, comma 5, della l.r. 1/2015, agli oneri per gli esercizi successivi, a decorrere dall'anno 2028 e fino al 2044, si fa fronte con legge di bilancio, secondo la seguente articolazione:
+a) fino ad un massimo di euro 1.841.000,00 per l'anno 2028;
+b) fino ad un massimo di euro 1.895.000,00 per l'anno 2029;
+c) fino ad un massimo di euro 1.874.000,00 per l'anno 2030;
+d) fino ad un massimo di euro 1.930.000,00 per l'anno 2031;
+e) fino ad un massimo di euro 1.989.000,00 per l'anno 2032;
+f) fino ad un massimo di euro 1.952.000,00 per l'anno 2033;
+g) fino ad un massimo di euro 2.012.000,00 per l'anno 2034;
+h) fino ad un massimo di euro 1.664.000,00 per l'anno 2035;
+i) fino ad un massimo di euro 1.720.000,00 per l'anno 2036;
+j) fino ad un massimo di euro 1.778.000,00 per l'anno 2037;
+k) fino ad un massimo di euro 1.839.000,00 per l'anno 2038;
+l) fino ad un massimo di euro 1.902.000,00 per l'anno 2039;
+m) fino ad un massimo di euro 1.720.000,00 per l'anno 2040;
+n) fino ad un massimo di euro 1.597.000,00 per l'anno 2041;
+o) fino ad un massimo di euro 1.657.000,00 per l'anno 2042;
+p) fino ad un massimo di euro 1.718.000,00 per l'anno 2043;
+q) fino ad un massimo di euro 1.607.000,00 per l'anno 2044.
