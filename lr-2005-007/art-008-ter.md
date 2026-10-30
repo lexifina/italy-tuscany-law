@@ -1,0 +1,2 @@
+Art. 8 ter - Norma transitoria
+1. I piani per la pesca nelle acque interne delle province restano in vigore fino all'approvazione del piano regionale per la pesca nelle acque interne approvato ai sensi dell'articolo 8, comma 2, come modificato dalla legge regionale 1 marzo 2016, n. 20 (Riordino delle funzioni amministrative in materia di caccia e pesca nel mare e nelle acque interne in attuazione della l.r. 22/2015. Modifiche alle leggi regionali 3/1994, 3/1995, 20/2002, 7/2005 e 66/2005), nelle parti relative alla pianificazione dei corpi idrici.
