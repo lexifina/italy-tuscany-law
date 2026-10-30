@@ -1,0 +1,3 @@
+Articolo Unico
+1. Il requisito di cui alla lettera b)dell' art. 9 della L.R. 10 maggio 1983, n. 26 , come sostituito dall' art. 4 della L.R. 10 marzo 1986, n. 10 , deve intendersi esistente se posseduto da almeno uno dei due componenti la coppia di nuova formazione di cui al terzo comma del medesimo articolo.
+2. Il requisito di cui alla lettera b) dell' art. 9/bis della L.R. 10 maggio 1983, n. 26 , introdotto dall' art. 4 della L.R. 10 marzo 1986, n. 10 , deve intendersi esistente se posseduto da almeno uno dei due componenti la coppia di nuova formazione di cui al terzo comma del medesimo articolo.
