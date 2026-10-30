@@ -1,0 +1,3 @@
+Art. 35 bis 1 Disposizioni relative all'autorizzazione all'esercizio dell'attività estrattiva nei siti in cui non sono presenti beni appartenenti al patrimonio indisponibile del comune
+1. Per i siti estrattivi in cui non sono presenti beni appartenenti al patrimonio indisponibile del comune, il progetto definitivo di cui all'articolo 17, comma 1, contiene, oltre ai contenuti previsti dal medesimo comma 1, un piano di utilizzo dei materiali che attesti l'impegno ad avvalersi del sistema produttivo locale per la lavorazione di almeno il 50 per cento del materiale da taglio complessivamente estratto.
+2. In tali casi l'autorizzazione contiene, oltre ai contenuti di cui all'articolo 18, comma 2, le prescrizioni per assicurare il rispetto dell'impegno di cui al comma 1.

@@ -1,0 +1,6 @@
+Art. 41 bis Disposizioni in favore dell'utilizzo del materiale detritico per la realizzazione di opere pubbliche
+1. Al fine di favorire l'impiego del materiale detritico depositato all'interno dei siti estrattivi, le quantità sostenibili individuate dai piani attuativi dei bacini estrattivi delle Alpi Apuane di cui all'articolo 113 della l.r. 65/2014 sono computate, fino alla data del 31 dicembre 2027, non tenendo conto di tale materiale nei casi in cui esso sia utilizzato per la realizzazione di opere pubbliche o di pubblica utilità.
+2. Ai fini di cui al comma 1, non è computato esclusivamente il materiale detritico:
+a) già depositato all'interno dei siti estrattivi alla data di approvazione della deliberazione del Consiglio regionale 21 luglio 2020, n. 47 (Piano regionale cave di cui all'articolo 6 della l.r. 35/2015. Approvazione ai sensi dell'articolo 19 della l.r. 65/2014 );
+b) la cui rimozione sia prevista dai progetti di coltivazione presentati successivamente all'approvazione del relativo piano attuativo da parte del comune e non sia in contrasto con le pertinenti disposizioni previste nello stesso piano attuativo.
+3. Il comune individua le modalità operative per l'attuazione delle disposizioni di cui ai commi 1 e 2 e la relativa documentazione, che i titolari delle autorizzazioni all'escavazione sono tenuti a presentare al comune medesimo.
