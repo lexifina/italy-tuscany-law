@@ -1,0 +1,28 @@
+Legge regionale
+26 aprile 2022
+12
+Disposizioni di semplificazione in materia di governo del territorio finalizzate all'attuazione delle misure previste dal Piano nazionale di ripresa e resilienza (PNRR) o dal Piano nazionale degli investimenti complementari (PNC).
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, terzo e quarto comma, della Costituzione;
+Visti l'articolo 4, comma 1, lettere l), m), n), o), v), z), dello Statuto;
+Visto il regolamento (UE) 2021/241 del Parlamento europeo e del Consiglio del 12 febbraio 2021 che istituisce il dispositivo per la ripresa e la resilienza;
+Vista la decisione del Consiglio ECOFIN del 13 luglio 2021, recante l'approvazione della valutazione del Piano per la ripresa e resilienza dell'Italia (PNRR) e notificata all'Italia dal Segretariato generale del Consiglio con nota LT161/21 del 14 luglio 2021;
+Vista la legge 7 agosto, 1990, n. 241 (Nuove norme in materia di procedimento amministrativo e di diritto di accesso ai documenti amministrativi);
+Visto il decreto del Presidente della Repubblica 8 giugno 2001, n. 327 (Testo unico delle disposizioni legislative e regolamentari in materia di espropriazione per pubblica utilità);
+Visto il decreto legislativo 22 gennaio 2004, n. 42 (Codice dei beni culturali e del paesaggio, ai sensi dell'articolo 10 della legge 6 luglio 2002, n. 137);
+Visto il decreto legislativo 2 aprile 2006, n. 152 (Norme in materia ambientale);
+Visto il decreto-legge 31 maggio 2021, n. 77 (Governance del Piano nazionale di ripresa e resilienza e prime misure di rafforzamento delle strutture amministrative e di accelerazione e snellimento delle procedure), convertito, con modificazioni, dalla legge 29 luglio 2021, n. 108;
+Vista la legge regionale 12 febbraio 2010, n. 10 (Norme in materia di valutazione ambientale strategica "VAS", di valutazione di impatto ambientale "VIA", di autorizzazione integrata ambientale "AIA" e di autorizzazione unica ambientale "AUA");
+Vista la legge regionale 10 novembre 2014, n. 65 (Norme per il governo del territorio);
+Vista la deliberazione del Consiglio regionale della Toscana 27 marzo 2015, n. 37 (Atto di integrazione del piano di indirizzo territoriale "PIT" con valenza di piano paesaggistico. Approvazione ai sensi dell'articolo 19 della legge regionale 10 novembre 2015, n. 64 "Norme per il governo del territorio");
+Considerato quanto segue:
+1. L'attuazione del Piano nazionale di ripresa e resilienza (PNRR) e del Piano nazionale degli investimenti complementari (PNC) rappresentano una opportunità storica, in termini di risorse previste, per sanare i danni economici e sociali causati dalla crisi pandemica dovuta dalla diffusione del virus SARS-COV-2 e accompagnare il Paese, rafforzando l'economia, in un percorso di transizione ecologica e ambientale maggiormente solidale e sostenibile;
+2. Il Governo stima che gli investimenti previsti dal PNRR e dal PNC possano avere un impatto significativo sulle principali variabili macroeconomiche tanto che, nel 2026, l'anno in cui è prevista la conclusione di suddetti piani, è previsto un incremento del prodotto interno lordo di 3,6 punti percentuali rispetto all'andamento tendenziale, mentre nell'ultimo triennio dell'orizzonte temporale (2024 – 2026), viene previsto un incremento dell'occupazione di 3,2 punti percentuali;
+3. Ai fini dell'attuazione del PNRR, il Governo ha predisposto uno schema di governance del medesimo Piano che prevede una struttura di coordinamento centrale presso il Ministero dell'Economia e delle finanze, che ne supervisiona l'attuazione ed è responsabile dell'invio delle richieste di pagamento alla Commissione Europea, mentre le amministrazioni territoriali sono responsabili di singoli investimenti anche mediante la titolarità di specifiche progettualità in qualità di soggetti attuatori;
+4. Al fine di consentire un'efficace, tempestiva ed efficiente realizzazione degli interventi previsti nei diversi settori interessati dalle previsioni del PNRR o del PNC, qualora questi incidano sull'assetto del territorio, comportando variazioni agli strumenti della pianificazione territoriale o urbanistica, è opportuno procedere ad uno snellimento delle tempistiche che caratterizzano le ordinarie procedure amministrative legate al governo del territorio;
+5. Con la presente legge la Regione Toscana definisce, per il tempo strettamente necessario all'attuazione delle misure previste dal PNRR e dal PNC, una disciplina speciale per gli interventi ivi previsti, stabilendo la semplificazione dei procedimenti relativi all'approvazione delle varianti agli strumenti della pianificazione territoriale o urbanistica, qualora i progetti da realizzare siano individuati dal PNRR o dal PNC;
+6. Essa dispone altresì un'ulteriore misura di semplificazione stabilendo che, nel caso in cui la realizzazione di opere diverse da quelle pubbliche o di pubblica utilità, finanziate totalmente o parzialmente dal PNRR o dal PNC, comporti la necessità di variare gli strumenti di pianificazione territoriale o urbanistica, si possa procedere ad effettuare le varianti, nel rispetto delle norme procedurali previste dal titolo II della l.r. 65/2014, in deroga alle limitazioni di cui agli articoli 222, 228, 229, 230, 231, 232, 233 e 234 della medesima l.r. 65/2014;
+7. Al fine di consentire la semplificazione delle procedure e velocizzare i tempi di attuazione della specifica disciplina ivi prevista, indispensabile per avviare l'iter procedimentale di attuazione degli interventi individuati dal PNRR o dal PNC, è necessario prevedere l'entrata in vigore della presente legge il giorno successivo alla data di pubblicazione sul Bollettino ufficiale della Regione Toscana;
+Approva la presente legge
