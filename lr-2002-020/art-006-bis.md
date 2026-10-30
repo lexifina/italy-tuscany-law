@@ -1,0 +1,2 @@
+Art. 6 bis - Tesserino per la caccia di selezione ai cervidi e bovidi
+1. Per la caccia di selezione ai cervidi e bovidi, la Regione rilascia ai cacciatori abilitati un apposito tesserino su cui annotare le giornate di caccia e gli abbattimenti effettuati fino al completamento del piano di abbattimento assegnato. Nel periodo compreso tra la terza domenica di settembre e il 31 di gennaio deve essere segnato anche il tesserino venatorio di cui all'articolo 6.
