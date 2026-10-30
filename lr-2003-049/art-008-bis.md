@@ -1,4 +1,4 @@
-Art. 8 bis - Perdita di possesso del veicolo per furto, demolizione o esportazione all'estero
+Art. 8 bis Perdita di possesso del veicolo per furto, demolizione o esportazione all'estero
 1. L'intestatario del veicolo non è tenuto al pagamento della tassa automobilistica regionale nelle seguenti ipotesi:
 a) perdita di possesso del veicolo per furto regolarmente denunciato;
 b) demolizione del veicolo certificata ai sensi dell'articolo 46 del decreto legislativo 5 febbraio 1997, n. 22 (Attuazione delle direttive 91/156/CEE sui rifiuti, 91/689/CEE sui rifiuti pericolosi e 94/62/CE sugli imballaggi e sui rifiuti di imballaggio);

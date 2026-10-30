@@ -1,5 +1,7 @@
-Art. 8 quater - Sospensioni dell'obbligo tributario
+Art. 8 quater Sospensioni dell'obbligo tributario
 1. Costituisce titolo per la sospensione dell'obbligo di pagamento della tassa automobilistica regionale la cessione di mezzi di trasporto effettuata, a favore dei contribuenti che ne fanno professionalmente commercio, esclusivamente con le modalità indicate dall'articolo 36, comma 10, del decreto legge 23 febbraio 1995, n. 41 (Misure urgenti per il risanamento della finanza pubblica e per l'occupazione nelle aree depresse), convertito, con modificazioni, dalla legge 22 marzo 1995, n. 85.
 2. L'obbligo di pagamento delle tasse automobilistiche regionali è sospeso a decorrere dalla periodicità tributaria immediatamente successiva a quella in essere al momento della cessione e fino al mese precedente a quello in cui avviene la rivendita.
+2 bis. A partire dal 1° gennaio 2023, per effetto dell'avvenuta trascrizione della cessione di cui al comma 1 entro i termini di cui all'articolo 5, comma 44, del decreto-legge 30 dicembre 1982, n. 953 (Misure in materia tributaria) convertito, con modificazioni, dalla legge 28 febbraio 1983, n. 53, risultano adempiuti gli obblighi di comunicazione di cui ai commi 44 e 45 del medesimo articolo 5.
+2 ter. A far data dal 1° gennaio 2023 non si applica il pagamento del diritto fisso di cui all'articolo 5, comma 47, del d.l. 953/1982 convertito dalla l. 53/1983.
 3. Abrogato.
 4. La trascrizione presso il PRA del provvedimento di fermo derivante dalla procedura di riscossione coattiva di crediti di natura pubblicistica non esplica effetti ai fini della interruzione e sospensione dell'obbligo tributario.
