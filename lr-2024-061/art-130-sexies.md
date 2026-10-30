@@ -1,0 +1,3 @@
+Art.130 sexies Modalità e contenuti dei corsi di qualificazione e aggiornamento per gli accompagnatori di media montagna
+1. La Giunta regionale, con propria deliberazione, sentito il Collegio regionale delle guide alpine, determina le materie oggetto dei corsi di cui all'articolo 130 quinquies, il numero delle ore e le modalità di accesso.
+2. Nel provvedimento di cui al comma 1 sono determinati i casi di parziale esonero dalla frequenza dei corsi di qualificazione e dalle relative prove attitudinali di ammissione per i soggetti che dimostrano di aver già acquisito le relative conoscenze teoriche o tecnico-pratiche.
