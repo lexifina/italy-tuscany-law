@@ -1,0 +1,16 @@
+Legge regionale
+14 giugno 2016
+36
+Disposizioni in materia di demanio e patrimonio della Regione Toscana. Modifiche alla l.r. 77/2004.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, comma terzo, e l'articolo 119 della Costituzione;
+Visto l'articolo 4, comma 1, lettera m), dello Statuto;
+Visto il regio decreto 18 novembre 1923, n. 2440 (Nuove disposizioni sull'amministrazione del patrimonio e sulla contabilità generale dello Stato);
+Visto il regolamento emanato con regio decreto 23 maggio 1924, n. 827 (Regolamento per l'amministrazione del patrimonio e per la contabilità generale dello Stato);
+Vista la legge regionale 27 dicembre 2004, n. 77 (Demanio e patrimonio della Regione Toscana. Modifiche alla legge regionale 21 marzo 2000, n. 39 "Legge forestale della Toscana")
+Considerato quanto segue:
+1. L'acquisizione delle opere pubbliche e delle aree alla proprietà regionale a demanio regionale discende dalle leggi ed è antecedente alla presa in consistenza; quest'ultima operazione consiste esclusivamente nell'iscrizione nel registro dei beni demaniali dell'opera pubblica realizzata e delle aree espropriate. Nell'ambito di un gruppo di lavoro è stata, tra le altre cose, rilevata la necessità di creare un raccordo tra il settore patrimonio, cui compete l'iscrizione in inventario delle proprietà regionali e le strutture regionali competenti alla realizzazione e gestione delle opere ovvero ai rapporti con gli enti individuati quali soggetti realizzatori dei suddetti interventi. Si rende pertanto necessaria, da un lato, una modifica all'articolo 6, comma 2, della l.r. 77/2004, in cui si prevede un nulla osta della struttura regionale competente alla gestione o ai rapporti con gli enti gestori da rilasciare al settore Patrimonio per l'acquisizione delle aree espropriate e delle opere realizzate e, dall'altro, l'inserimento dell'articolo 6 bis che disciplina quelle ipotesi in cui, non essendo reperito per alcune opere il certificato di collaudo o l'atto di attestazione tecnico-amministrativa, ai fini dell'assunzione in inventario delle stesse, si prevede un atto che verifichi la funzionalità in relazione alla categoria di appartenenza e ne definisca il livello di sicurezza a garanzia della pubblica incolumità, tenuto conto del livello di conoscenza delle caratteristiche tecniche dell'opera;
+2. L'abrogazione del comma 9 dell'articolo 24 della l.r. 77/2004 si rende necessaria alla luce dell'introduzione dell'articolo 25 bis che disciplina le ipotesi di trattativa privata. In quanto nell'articolo 25 bis viene disciplinata anche questa fattispecie di trattativa privata.
+3. In particolare occorre inserire l'articolo 25 bis per disciplinare alcune ipotesi di vendita a trattativa diretta in quanto, nelle fattispecie individuate, è opportuno non ricorrere alla vendita mediante avviso pubblico poiché trattasi o di vendita ad enti pubblici che richiedono un bene immobile per motivi di interesse pubblico, o di vendita di beni per i quali è andata deserta l'offerta al pubblico, ovvero per la vendita di beni immobili di modesto valore e comunque per un importo stimato non superiore ad euro 50.000,00, per la vendita di quote indivise di beni immobili, per la vendita di fondi interclusi o parzialmente interclusi ed, infine, per la vendita di diritti reali su immobili di proprietà della Regione.
