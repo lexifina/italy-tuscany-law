@@ -1,10 +1,15 @@
-Titolo II TER ESERCIZIO DELLE ATTIVITA' DI ENOTURISMO
-Art. 22 septies Avvio delle attività di enoturismo
+Titolo II TER ESERCIZIO DELLE ATTIVITA' DI ENOTURISMO E DI OLEOTURISMO
+Art. 22 septies Avvio delle attività di enoturismo e di oleoturismo
 1. Possono esercitare le attività di enoturismo:
 a) l'imprenditore agricolo, singolo o associato, di cui all'articolo 2135 del codice civile che svolge attività di vitivinicoltura;
-b) i comitati di gestione delle strade del vino riconosciute ai sensi della legge regionale 5 agosto 2003, n. 45 (Disciplina delle strade del vino, dell'olio extravergine di oliva e dei prodotti agricoli e agroalimentari di qualità);
+b) i comitati di gestione delle strade del vino e dell'olio o del vino riconosciute ai sensi della legge regionale 5 agosto 2003, n. 45 (Disciplina delle strade del vino, dell'olio extravergine di oliva e dei prodotti agricoli e agroalimentari di qualità), e la federazione delle strade del vino, dell'olio e dei sapori di Toscana;
 c) le cantine sociali cooperative e i loro consorzi alle quali i soci conferiscono i prodotti dei propri vigneti per la produzione, la lavorazione e la commercializzazione del vino;
 d) i consorzi di tutela dei vini a denominazione geografica e indicazione geografica.
-2. I soggetti di cui al comma 1 che intendono avviare le attività di enoturismo sono soggetti alla presentazione, mediante STAR, della SCIA allo SUAP del comune in cui si esercita l'attività. Il modello della SCIA è approvato con decreto del dirigente del settore competente della Giunta regionale.
-3. Nel caso in cui l'attività di enoturismo sia attivata nell'ambito dell'agriturismo, l'imprenditore provvede agli adempimenti di cui agli articoli 7 e 8 per la presentazione della DUA e della SCIA.
-4. Le attività di enoturismo non possono essere esercitate dai soggetti di cui all'articolo 8, comma 1, lettere b), c) d) ed e).
+2. Possono esercitare le attività di oleoturismo:
+a) l'imprenditore agricolo, singolo o associato, di cui all'articolo 2135 del codice civile che svolge attività di olivicoltura e produzione di olio extra-vergine di oliva;
+b) i comitati di gestione delle strade del vino e dell'olio o dell'olio, riconosciute ai sensi della l.r. 45/2003 e la federazione delle strade del vino, dell'olio e dei sapori di Toscana;
+c) gli oleifici sociali cooperativi ed i loro consorzi ai quali i soci conferiscono i prodotti dei propri oliveti per la produzione, la lavorazione e la commercializzazione dell'olio extra-vergine di oliva;
+d) i consorzi di tutela delle denominazioni di origine (DO) e indicazione geografica protetta (IGP) dell'olio extra-vergine di oliva.
+3. I soggetti di cui ai commi 1 e 2, che intendono avviare le attività di enoturismo e di oleoturismo, sono soggetti alla presentazione, mediante STAR, della SCIA allo SUAP del comune in cui si esercita l'attività. Il modello della SCIA è approvato con decreto del dirigente del settore competente della Giunta regionale.
+4. Nel caso in cui l'attività di enoturismo e di oleoturismo sia attivata nell'ambito dell'agriturismo, l'imprenditore provvede agli adempimenti di cui agli articoli 7 e 8 per la presentazione della DUA e della SCIA.
+5. Le attività di enoturismo e di oleoturismo non possono essere esercitate dai soggetti di cui all'articolo 8, comma 1, lettere b), c), d) ed e).

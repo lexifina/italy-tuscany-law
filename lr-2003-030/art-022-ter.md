@@ -1,4 +1,4 @@
-Art. 22 ter - Modalità di svolgimento e organizzazione delle attività di fattoria didattica
+Art. 22 ter Modalità di svolgimento e organizzazione delle attività di fattoria didattica
 1. Per lo svolgimento delle attività di fattoria didattica è necessaria la presenza dell'imprenditore agricolo o di un suo coadiuvante familiare o di un collaboratore. Tali soggetti devono essere in possesso di uno dei seguenti requisiti:
 a) attestato di frequenza rilasciato a seguito di un percorso di formazione obbligatoria per operatore di fattoria didattica organizzato ai sensi dell'articolo 22 quater;
 b) diploma o laurea in materie pedagogiche;
