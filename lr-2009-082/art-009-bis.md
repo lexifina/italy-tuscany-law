@@ -1,0 +1,5 @@
+Art. 9 bis Decadenza dei servizi
+1. L'accreditamento decade automaticamente qualora:
+a) la comunicazione di cui all'articolo 13, comma 2, sia effettuata oltre un anno dall'approvazione della deliberazione di cui all'articolo 3, comma 5;
+b) la verifica dell'attività svolta e dei risultati raggiunti non sia trasmessa entro il termine di un anno dalla comunicazione di cui all'articolo 13, comma 2, e successivamente con periodicità annuale, per i servizi già accreditati;
+c) la verifica dell'attività svolta e dei risultati raggiunti non sia trasmessa entro il termine di un anno dall'accreditamento e successivamente con periodicità annuale, per gli altri servizi.
