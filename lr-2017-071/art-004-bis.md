@@ -1,0 +1,8 @@
+Capo II bis Sostegno alla transizione digitale e tecnologica
+Art. 4 bis Sostegno alla transizione digitale e tecnologica
+1. Al fine di favorire processi di trasformazione tecnologica delle micro, piccole e medie imprese, la Regione attua interventi per:
+a) la transizione digitale dei processi produttivi manifatturieri e dei servizi;
+b) gli investimenti in ricerca, sviluppo e innovazione negli ambiti tematici della manifattura sostenibile, integrata, adattiva, personalizzata e sicura;
+c) la valorizzazione di nuovi modelli di business e la creazione e lo sviluppo di nuove imprese nei settori dell'economia toscana;
+d) modalità organizzative di produzione e lavoro sostenibili sotto il profilo dell'equilibrio vita/lavoro;
+e) la contaminazione fra saperi tradizionali e nuove tecnologie.

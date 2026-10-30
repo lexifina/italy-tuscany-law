@@ -1,0 +1,10 @@
+Art. 18 ter Fondo nuova finanza toscana
+1. Per favorire l'accesso al credito da parte delle micro, piccole e medie imprese (MPMI), è istituito il fondo "nuova finanza toscana", finalizzato all'attivazione di strumenti finanziari nella forma di garanzia, prestito, equity, quasi equity ed eventuali sovvenzioni in abbinamento.
+2. Il fondo nuova finanza toscana prevede:
+a) la sezione speciale "Toscana" del fondo di garanzia per le PMI di cui all'articolo 2, comma 100, lettera a), della legge 23 dicembre 1996, n. 662 (Misure di razionalizzazione della finanza pubblica);
+b) fondi regionali di garanzia attivati con modalità complementari e integrative rispetto all'operatività del fondo di garanzia PMI di cui alla lettera a), articolati anche per sezioni specializzate e operanti, sia in garanzia diretta, sia in riassicurazione, anche con riferimento a imprese che, pur avendo un rating positivo, non possiedono i requisiti di accesso al fondo di cui alla lettera a);
+c) risorse finalizzate all'abbattimento delle commissioni di garanzia o dei tassi d'interesse;
+d) fondi per finanziamenti agevolati di medio e lungo termine, ivi compreso il microcredito;
+e) risorse destinate ad altri strumenti finanziari: equity, quasi equity;
+f) risorse per la partecipazione a strumenti finanziari in partenariato con istituzioni finanziarie pubbliche, nazionali e internazionali, con operatori specializzati, con fondazioni bancarie, con istituzioni finanziarie private.
+3. Il fondo è alimentato con risorse del fondo unico per le imprese di cui all'articolo 18.

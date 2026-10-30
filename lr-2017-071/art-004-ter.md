@@ -1,0 +1,8 @@
+Art. 4 ter Ecosistema regionale del trasferimento tecnologico
+1. L'ecosistema regionale del trasferimento tecnologico è un sistema di cooperazione aperto in cui diversi attori, pubblici e privati, concorrono nel favorire lo sviluppo delle applicazioni delle tecnologie digitali nei sistemi di produzione e nei servizi. Esso si articola in aggregazioni formalmente organizzate, quali strutture o raggruppamenti di soggetti pubblici e privati di parti indipendenti, partenariati estesi ed ecosistemi dell'innovazione.
+2. Le aggregazioni di cui al comma 1:
+a) sono costituite da imprese, organismi di ricerca, centri e infrastrutture per il trasferimento tecnologico, digital innovation hub, competence center, distretti tecnologici regionali, organizzazioni senza scopo di lucro;
+b) svolgono attività di divulgazione, diffusione e trasferimento di conoscenze a favore delle imprese a supporto dell'applicazione delle innovazioni e delle tecnologie ai processi produttivi e ai servizi.
+3. La Regione promuove il coordinamento dell'ecosistema regionale del trasferimento tecnologico mediante la costituzione, presso la Giunta regionale, di un comitato di indirizzo e favorisce aggregazioni regionali specializzate.
+4. La Giunta regionale definisce la composizione del comitato di cui al comma 3 e le modalità di funzionamento dello stesso entro novanta giorni dall'entrata in vigore del presente comma, sentita la consulta di cui all'articolo 29.
+5. La partecipazione ai lavori del comitato è a titolo gratuito e non è riconosciuto alcun rimborso spese.
