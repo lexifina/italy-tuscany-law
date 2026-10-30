@@ -1,0 +1,2 @@
+Art. 14 bis Concorso finanziario regionale al fondo di dotazione dei consorzi da costituire nell'anno 2025
+1. Nel caso in cui la Giunta regionale aderisca nell'anno 2025 a consorzi di cui ha promosso la costituzione ai sensi dell'articolo 3, comma 1, concorre al finanziamento del relativo fondo di dotazione proporzionalmente alla relativa quota di partecipazione, nel limite delle risorse di cui all'articolo 16, comma 1 bis.
