@@ -1,0 +1,23 @@
+Legge regionale
+23 maggio 2014
+26
+Misure urgenti di razionalizzazione della spesa sanitaria. Modifiche alla l.r. 40/2005, alla l.r. 51/2009, alla l.r. 85/2009 ed alla l.r. 81/2012.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, terzo comma, della Costituzione;
+Visto l'articolo 4, comma 1, lettera c), dello Statuto;
+Vista la legge regionale 24 febbraio 2005, n. 40 (Disciplina del Servizio sanitario regionale);
+Vista la legge regionale 5 agosto 2009, n. 51 (Norme in materia di qualità e sicurezza delle strutture sanitarie: procedure e requisiti organizzativi di esercizio e sistemi di accreditamento);
+Vista la legge regionale 29 dicembre 2009, n. 85 (Riconoscimento della "Fondazione Toscana Gabriele Monasterio per la ricerca medica e di sanità pubblica" come ente di diritto pubblico);
+Vista la legge regionale 27 dicembre 2012 n. 81 (Misure urgenti di razionalizzazione della spesa sanitaria. Modifiche alla l.r. 51/2009, alla l.r. 40/2005 e alla l.r. 8/2006);
+Considerato quanto segue:
+1. Si rende necessario intervenire sull'articolo 13 della l.r. 40/2005, che disciplina il ruolo delle università nel sistema sanitario toscano, sostituendo, in primo luogo il termine "protocolli" con il termine "protocollo", dal momento che il protocollo con le tre università toscane è sempre stato unico, in secondo luogo prevedendo che la commissione istituita per la predisposizione dello stesso svolga attività di monitoraggio e invii una relazione annuale al direttore generale, all'assessore regionale e alla commissione consiliare, competenti per materia, ed ai rettori delle università;
+2. Si interviene per sopprimere gli attuali tre enti per i servizi tecnico-amministrativi di area vasta (ESTAV), sostituendoli con un unico ente di supporto tecnico-amministrativo regionale, l'ESTAR, in linea di continuità con quanto previsto dall'articolo 120 della legge regionale 27 dicembre 2011, n. 66 (Legge finanziaria per l'anno 2012). Tale norma, infatti, ha attribuito alla Regione il compito di promuovere il coordinamento dei diversi ESTAV, anche attraverso l'istituzione della figura di un coordinatore al fine di garantire l'interscambio e l'ottimizzazione delle risorse;
+3. Al fine di mantenere un legame del nuovo ente con la programmazione di area vasta e di agevolare l'attività dello stesso ente, che ha un'estensione corrispondente al territorio regionale, si prevede che l'organizzazione dell'ESTAR si articoli, oltreché in un dipartimento di supporto tecnico amministrativo per la gestione interna dell'ente, in dipartimenti di livello regionale per la gestione delle funzioni attribuitegli dalla legge e in sezioni territoriali di area vasta a cui afferiscono le articolazioni territoriali degli stessi dipartimenti di livello regionale;
+4. Al fine di conformarsi a quanto previsto dal decreto legislativo 30 giugno 2003, n. 196 (Codice in materia di protezione dei dati personali), si stabilisce che la Giunta regionale debba definire criteri e modalità del sistema di relazioni tra ESTAR e le aziende sanitarie in merito al trattamento dei dati;
+5. Si rende necessario definire in maniera più puntuale le fonti di finanziamento dell'ESTAR distinguendo in particolare tra i finanziamenti per la copertura dei costi del personale, di funzionamento dell'ente e di esercizio delle attività dell'ente;
+6. Si rende necessario disciplinare la fase transitoria del passaggio dai tre ESTAV all'ente unico, scandendo i tempi per la nomina degli organi del nuovo ente e prevedendo che i direttori generali degli ESTAV o, in caso di loro vacanza, i direttori amministrativi o i commissari nominati ai sensi dell'articolo 39, comma 9, della l.r. 40/2005, svolgano le funzioni di commissari straordinari. Questi ultimi sono tenuti ad effettuare la ricognizione dei rapporti attivi e passivi, della consistenza del patrimonio immobiliare e dei rapporti di lavoro in essere;
+7. Si rende necessario modificare la l.r. 51/2009 stabilendo la competenza della Giunta regionale a determinare l'importo e le modalità di erogazione del rimborso spettante al valutatore del sistema trasfusionale, agli operatori dei dipartimenti di prevenzione e delle aree tecniche delle aziende sanitarie e di tutti gli altri soggetti coinvolti nelle attività di verifica del possesso dei requisiti di esercizio delle strutture pubbliche;
+8. E' necessario prevedere che la presente legge entri in vigore il giorno successivo alla data di pubblicazione sul Bollettino ufficiale della Regione Toscana per garantire l'immediata operatività del passaggio dai tre ESTAV all'ente unico ESTAR;
+Approva la presente legge
