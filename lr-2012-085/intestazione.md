@@ -1,0 +1,23 @@
+Legge regionale
+27 dicembre 2012
+85
+Modifiche alla legge regionale 9 gennaio 2009, n. 3 (Testo unico delle norme sui consiglieri e sui componenti della Giunta regionale)
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, commi terzo e quarto, della Costituzione;
+Visti gli articoli 9 e 30, dello Statuto;
+Visto il decreto-legge 13 agosto 2011, n. 138 (Ulteriori misure urgenti per la stabilizzazione finanziaria e per lo sviluppo), convertito, con modificazioni, dalla legge 14 settembre 2011, n. 148;
+Visto il decreto-legge 10 ottobre 2012, n. 174 (Disposizioni urgenti in materia di finanza e funzionamento degli enti territoriali, nonché ulteriori disposizioni in favore delle zone terremotate nel maggio 2012), convertito, con modificazioni, dalla legge 7 dicembre 2012, n. 213;
+Vista la deliberazione della Conferenza permanente per i rapporti tra lo Stato, le Regioni e le Province autonome di Trento e Bolzano 30 ottobre 2012, n. 215/CSR (Individuazione della "regione più virtuosa", ai sensi dell'articolo 2, comma 1, lettere b) ed f) del decreto-legge 10 ottobre 2012, n. 174 recante: "Disposizioni urgenti in materia di finanza e funzionamento degli enti territoriali, nonché ulteriori disposizioni in favore delle zone terremotate nel maggio 2012");
+Vista la deliberazione della Conferenza permanente per i rapporti tra lo Stato, le Regioni e le Province autonome di Trento e Bolzano 6 dicembre 2012, n. 235/CSR (Individuazione della "Regione più virtuosa", ai sensi dell'articolo 2, comma 1, lett. b), c), e g) del disegno di legge A.S. 3570 concernente la "Conversione in legge, con modificazioni, del decreto-legge 10 ottobre 2012, n. 174 recante disposizioni urgenti in materia di finanza e funzionamento degli enti territoriali, nonché ulteriori disposizioni in favore delle zone terremotate nel maggio 2012");
+Vista la legge regionale 9 gennaio 2009, n. 3 (Testo unico delle norme sui consiglieri e sui componenti della giunta regionale);
+Vista la legge regionale 27 dicembre 2011, n. 66 (Legge finanziaria per l'anno 2012);
+Considerato quanto segue:
+1. Il d.l. 174/2012, convertito dalla l. 213/2012, ha stabilito di ricondurre a criteri omogenei di contenimento della spesa i trattamenti del personale politico regionale, ed ha condizionato l'erogazione di gran parte dei trasferimenti erariali a favore delle regioni all'attuazione di detti criteri entro il 23 dicembre 2012, nonché a numerosi altri adempimenti sempre ispirati al contenimento delle spese;
+2. Negli adempimenti sopra richiamati rientrano anche quelli previsti dall'articolo 14 del d.l. 138/2011, convertito dalla l. 148/2011, quali la cessazione, dalla prossima legislatura, del sistema del vitalizio e l'eventuale passaggio ad un sistema previdenziale contributivo, nonché la previsione che il trattamento economico dei consiglieri regionali sia commisurato all'effettiva partecipazione ai lavori del Consiglio;
+3. La Regione Toscana ha già approvato in prima lettura e si accinge ad approvare in via definitiva la modifica statutaria relativa alla riduzione del numero dei consiglieri e degli assessori e, inoltre, ha già disposto, con la l.r. 66/2012, l'abolizione del sistema del vitalizio, che con la presente legge viene compiutamente regolata;
+4. Ai sensi del d.l. 174/2012, convertito dalla l. 213/2012, la Conferenza dei Presidenti delle Assemblee legislative delle Regioni e delle Province autonome e la Conferenza delle Regioni e delle Province autonome, hanno concordato i parametri di virtuosità da applicare, poi recepiti dalla Conferenza permanente per i rapporti tra lo Stato, le Regioni e le Province autonome di Trento e Bolzano;
+5. Per la Toscana, la legislazione regionale vigente risulta in massima parte già conforme ai parametri di virtuosità richiesti dai suddetti atti; pertanto, occorre intervenire solo su alcuni aspetti della l.r. 3/2009, introducendo disposizioni che riportano al nuovo sistema definito dagli atti richiamati la situazione attuale dei trattamenti previsti, già sostanzialmente rispettosa dei limiti di spesa introdotti dalle norme nazionali;
+6. La Regione Toscana intende, inoltre, concorrere alla realizzazione degli obiettivi di coordinamento della finanza pubblica imponendo nel proprio ordinamento ulteriori limiti alla spesa per il funzionamento degli organi politici, in particolare, limitando, più di quanto disposto in sede nazionale, il trattamento dei Presidenti della Giunta regionale e del Consiglio regionale e prevedendo, tra il limite massimo e quello minimo previsto dalla normativa nazionale, un ulteriore limite intermedio di spesa per i consiglieri con specifiche funzioni e gli assessori;
+Approva la presente legge
