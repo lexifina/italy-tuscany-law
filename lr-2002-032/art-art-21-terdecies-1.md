@@ -1,0 +1,4 @@
+Art. 21 terdecies 1 Regolamento di amministrazione e contabilità
+1. Il regolamento di amministrazione e contabilità dell'Agenzia è approvato dalla Giunta regionale e definisce i criteri e le modalità per il funzionamento dell'Ente.
+2. Il regolamento prevede la separazione tra gestione dei fondi comunitari e gestione di fondi nazionali o regionali.
+3. Il regolamento definisce i criteri per la determinazione dei costi delle funzioni e delle attività indicate nel programma , ivi compresi i costi figurativi del personale utilizzato.

@@ -1,0 +1,8 @@
+Art. 4 bis - Regolamento regionale in materia di servizi educativi per la prima infanzia
+1. Con regolamento regionale sono definite le disposizioni attuative e organizzative del sistema dei servizi educativi per la prima infanzia, in particolare:
+a) gli standard strutturali, le caratteristiche pedagogico-educative e le modalità di funzionamento dei servizi;
+b) ulteriori requisiti per i nidi d'infanzia integrati con la scuola dell'infanzia, volti a promuovere la continuità verticale di cui all'articolo 3, comma 3, lettera c);
+c) i requisiti e le procedure per l'autorizzazione al funzionamento dei servizi;
+d) i requisiti e le procedure per il riconoscimento dell'accreditamento;
+e) le modalità di controllo e vigilanza sui servizi, le procedure di sospensione e revoca dell'autorizzazione al funzionamento e dell'accreditamento;
+f) le modalità di svolgimento delle attività di coordinamento territoriale, di cui all'articolo 3 bis, comma 5.

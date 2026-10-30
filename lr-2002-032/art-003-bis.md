@@ -1,0 +1,13 @@
+Art. 3 bis - Sistema regionale dei servizi educativi per la prima l'infanzia
+1. Il sistema regionale dei servizi educativi per la prima infanzia è costituito dai comuni e dai soggetti pubblici e privati che istituiscono e gestiscono tali servizi.
+2. I comuni sono titolari delle funzioni amministrative in materia di servizi educativi per la prima infanzia. Nel rispetto degli standard previsti nel regolamento di cui all'articolo 4 bis:
+a) gestiscono i servizi educativi;
+b) autorizzano soggetti pubblici e privati ad istituire e gestire servizi educativi e concedono l'accreditamento.
+3. I comuni programmano lo sviluppo del sistema dei servizi operanti sul proprio territorio e ne garantiscono la governance, in particolare:
+a) elaborano e realizzano interventi per la qualificazione dei servizi educativi per la prima infanzia, garantendo per i servizi a gestione diretta i requisiti per l'accreditamento disciplinati dal regolamento di cui all'articolo 4 bis;
+b) promuovono lo sviluppo di un sistema integrato pubblico-privato;
+c) vigilano sulla funzionalità del sistema.
+4. I soggetti pubblici diversi dai comuni e i soggetti privati contribuiscono allo sviluppo e alla qualificazione del sistema dei servizi educativi attraverso la progettazione e la realizzazione di servizi di propria titolarità. I soggetti privati contribuiscono anche attraverso la gestione di parte del sistema pubblico dell'offerta.
+5. Le conferenze zonali per l'istruzione di cui all'articolo 6 ter, svolgono un ruolo di coordinamento a livello territoriale all'interno del sistema regionale dei servizi educativi per la prima infanzia. A tal fine:
+a) favoriscono la costituzione di organismi di direzione e coordinamento pedagogico unitario dei servizi;
+b) individuano principi omogenei per l'adozione dei regolamenti comunali, al fine di garantire la massima uniformità possibile agli interventi attuati sul territorio.

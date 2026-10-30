@@ -1,0 +1,9 @@
+Art. 21 terdecies - Entrate
+1. Le entrate dell'Agenzia sono costituite da:
+a) contributo regionale per le spese di funzionamento, determinato annualmente con legge di bilancio, comprensivo delle risorse di cui all'articolo 1, commi 794 e 797, della legge 27 dicembre 2017, n. 205 (Bilancio di previsione dello Stato per l'anno finanziario 2018 e bilancio pluriennale per il triennio 2018-2020);
+b) finanziamenti della Regione finalizzati alle attività previste dal programma , di cui all'articolo 21 decies;
+c) altri contributi statali e comunitari;
+d) ricorso al credito, nel rispetto delle prescrizioni sul ricorso ad operazioni finanziarie e patrimoniali contenute nell'articolo 8 della l.r. 65/2010;
+e) ulteriori entrate eventuali.
+2. L'Agenzia individua, nel rispetto della normativa vigente in materia, un istituto bancario per l'attività di tesoreria per la gestione degli incassi, oltre che dei pagamenti, sia di spese di funzionamento che di premi e contributi e relativa al pagamento dei premi e contributi, nonché alla gestione delle spese di funzionamento.
+3. L'Agenzia stipula con l'istituto bancario individuato ai sensi del comma 2, la convenzione di cui all'articolo 47 del decreto legislativo 1 settembre 1993, n. 385 (Testo unico delle leggi in materia bancaria e creditizia).
