@@ -1,0 +1,4 @@
+Art. 35 ter - Procedimento per il rilascio della autorizzazione al consorzio
+1. Il consorzio costituito ai sensi dell'articolo 28, presenta il progetto definitivo dell'attività estrattiva corredato degli elaborati di cui all'articolo 17.
+2. L'approvazione del progetto definitivo costituisce condizione per il rilascio della concessione al vincitore della selezione di cui all'articolo 35.
+3. Il rilascio della concessione costituisce presupposto per il rilascio dell'autorizzazione.

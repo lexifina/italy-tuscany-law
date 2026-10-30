@@ -1,0 +1,12 @@
+Art. 40 bis - Comitato del distretto apuo-versiliese
+1. Entro novanta giorni dall'entrata in vigore del presente articolo, la Giunta regionale definisce i tempi e le modalità di costituzione del comitato del distretto Apuo-versiliese di cui fanno parte i rappresentanti dei comuni di cui all'articolo 40 ter, delle camere di commercio e delle parti economiche e sociali.
+2. Il comitato di cui al comma 1 svolge le seguenti funzioni:
+a) rappresentare le problematiche ambientali, sociali e produttive del distretto;
+b) elaborare proposte di intervento per la promozione della filiera produttiva locale, per la valorizzazione del materiale da estrazione, per la promozione di interventi a favore della sostenibilità delle attività di estrazione da sottoporre all'esame della Regione.
+3. La Regione promuove, attraverso i propri strumenti di programmazione, interventi volti a definire strumenti e percorsi per la valorizzazione e l'incentivazione delle filiere produttive dei materiali da estrazione, ed in particolare a:
+a) sostenere progetti finalizzati alla tracciabilità e alla marcatura dei prodotti derivanti dai materiali da estrazione;
+b) promuovere le esperienze di etichette e marchi locali che valorizzino le produzioni tipiche anche dimostrando minori impatti ambientali e sociali lungo il loro intero ciclo di vita;
+c) valorizzare il materiale da estrazione, anche attraverso l'aumento del livello di trasparenza, tracciabilità e capacità di destinazione dei prodotti, con particolare riferimento alla sensibilizzazione del cittadino;
+d) incentivare l'elaborazione di etichette locali capaci di innalzare l'identità del prodotto tipico;
+e) promuovere la conclusione di accordi di programma con i comuni interessati e con le imprese del distretto apuo-versiliese al fine di attuare interventi per lo sviluppo delle filiere produttive connesse ai materiali da estrazione.
+4. Con il medesimo atto di cui al comma 1, la Giunta regionale disciplina altresì i rapporti del Comitato con gli organismi previsti dalla deliberazione del Consiglio regionale n. 69 del 21 febbraio 2000 (Individuazione dei distretti industriali e dei sistemi produttivi locali manifatturieri ai sensi dell'art. 36 della Legge 317/1991 come modificato dall'art.6, comma 8 L. 140/99).
