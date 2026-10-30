@@ -12,4 +12,4 @@ c) non hanno adempiuto l'impegno di cui al comma 2.
 6. Le assemblee dei soci delle società della salute che proseguono le attività svolgono le funzioni attribuite alla conferenza zonale dei sindaci di cui all'articolo 34 della l.r. 41/2005, ed in particolare:
 a) approvano il piano di inclusione zonale;
 b) formulano le proposte di articolazione zonale del PIS.
-7. Il proseguimento delle attività delle società della salute in attuazione del comma 1 assolve alle funzioni previste dall'articolo 70 bis e alle funzioni previste dall'articolo 36 della l.r. 41/2005.
+7. Il proseguimento delle attività delle società della salute in attuazione del comma 1 assolve alle funzioni previste dall'articolo 70 bis e alle funzioni previste dall' articolo 36 della l.r. 41/2005.

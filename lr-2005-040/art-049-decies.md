@@ -7,7 +7,7 @@ b) partecipazione ai processi di rilevazione del fabbisogno formativo delle sing
 c) formulazione di proposte ai fini della ottimizzazione della formazione professionale;
 d) rilascio di pareri sugli atti di programmazione del servizio sanitario regionale, su richiesta della direzione regionale competente in materia di diritto alla salute;
 e) elaborazione di indirizzi inerenti all'integrazione delle competenze professionali;
-f) concorso alla definizione condivisa di standard e livelli di performance idonei a garantire lo sviluppo ed il mantenimento delle competenze e capacità professionali, ai sensi dell'articolo 39, comma 3, della legge regionale 5 agosto 2009, n. 51 (Norme in materia di qualità e sicurezza delle strutture sanitarie: procedure e requisiti autorizzativi di esercizio e sistemi di accreditamento).
+f) concorso alla definizione condivisa di standard e livelli di performance idonei a garantire lo sviluppo ed il mantenimento delle competenze e capacità professionali, ai sensi dell' articolo 39, comma 3, della legge regionale 5 agosto 2009, n. 51(Norme in materia di qualità e sicurezza delle strutture sanitarie: procedure e requisiti autorizzativi di esercizio e sistemi di accreditamento).
 4. L'Osservatorio per le professioni sanitarie è composto da:
 a) l'assessore competente, o suo delegato, con funzioni di presidente;
 b) tre medici;
@@ -30,4 +30,4 @@ b) da un rappresentante dei medici e da un rappresentante degli infermieri, con 
 c) dal Coordinatore dell'Organismo toscano per il governo clinico.
 12. L'Osservatorio per le professioni sanitarie adotta, su proposta dell'ufficio di presidenza, il regolamento interno, in cui sono definite le norme per l'organizzazione ed il funzionamento dell'Osservatorio stesso.
 13. Ai componenti dell'Osservatorio per le professioni sanitarie compete il rimborso delle spese nella misura prevista per i dirigenti regionali.
-14. Ai componenti che non sono dipendenti regionali è riconosciuto il rimborso delle spese per l'utilizzo del mezzo proprio nel rispetto dei limiti fissati dalla normativa statale vigente. Ai componenti inquadrati nel ruolo unico regionale si applicano le direttive emanate dalla Giunta regionale in applicazione dell'articolo 6, comma 12, del d.l. 78/2010, convertito dalla l. 122/2010.
+14. Ai componenti che non sono dipendenti regionali è riconosciuto il rimborso delle spese per l'utilizzo del mezzo proprio nel rispetto dei limiti fissati dalla normativa statale vigente. Ai componenti inquadrati nel ruolo unico regionale si applicano le direttive emanate dalla Giunta regionale in applicazione dell' articolo 6, comma 12, del d.l. 78/2010, convertito dalla l. 122/2010.

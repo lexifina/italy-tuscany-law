@@ -1,5 +1,5 @@
 Art. 12 bis - Conferenza zonale integrata
-1. La conferenza zonale integrata è la conferenza zonale dei sindaci di cui all'articolo 34 della legge regionale 24 febbraio 2005, n. 41 (Sistema integrato di interventi e servizi per la tutela dei diritti di cittadinanza sociale), integrata con il direttore generale dell'azienda unità sanitaria locale o suo delegato.
+1. La conferenza zonale integrata è la conferenza zonale dei sindaci di cui all' articolo 34 della legge regionale 24 febbraio 2005, n. 41(Sistema integrato di interventi e servizi per la tutela dei diritti di cittadinanza sociale), integrata con il direttore generale dell'azienda unità sanitaria locale o suo delegato.
 2. I componenti della conferenza zonale integrata intervengono ognuno con le proprie quote di partecipazione così determinate:
 a) il 66 per cento del totale è assegnato ai rappresentanti delle amministrazioni locali, che lo ripartiscono fra di loro in proporzione alla popolazione residente;
 b) il 34 per cento del totale è assegnato all'azienda sanitaria locale di riferimento.
@@ -11,6 +11,6 @@ b) approva il PIS;
 c) esprime l'intesa necessaria per la nomina del responsabile di zona;
 d) coordina gli strumenti della programmazione operativa di livello zonale;
 e) approva la convenzione per l'esercizio delle funzioni di integrazione socio-sanitaria, di cui all'articolo 70 bis;
-f) esprime l'intesa necessaria per la nomina del coordinatore sociale di zona di cui all'articolo 37 della l.r. 41/2005.
+f) esprime l'intesa necessaria per la nomina del coordinatore sociale di zona di cui all' articolo 37 della l.r. 41/2005.
 6. Il funzionamento della conferenza zonale integrata è disciplinato da un apposito regolamento adottato dalla conferenza stessa. Il regolamento può prevedere la possibilità di delega da parte del sindaco a favore dell'assessore competente e da parte del direttore generale nei confronti di un componente del comitato di direzione ad esclusione del responsabile di zona-distretto. Il regolamento può prevedere la costituzione di un esecutivo della conferenza.
 7. Laddove costituite le società della salute le competenze della conferenza zonale integrata sono esercitate dall'assemblea dei soci di cui all'articolo 71 sexies.

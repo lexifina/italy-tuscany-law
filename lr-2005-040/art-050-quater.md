@@ -1,0 +1,4 @@
+Art. 50 quater Collaboratori del direttore generale
+1. Il direttore generale nello svolgimento delle proprie funzioni si avvale di un direttore sanitario e di un direttore amministrativo, in possesso degli stessi requisiti e dotati degli stessi poteri previsti dagli articoli 3 e 3 bis del d.lgs. 502/1992.
+2. Ai direttori sanitari e amministrativi, iscritti nell'elenco di cui all'articolo 40 bis, si applicano le disposizioni di cui all'articolo 40.
+3. Le cause di cessazione del rapporto di lavoro dei direttori sanitari e amministrativi sono quelle previste dall'articolo 40, comma 10.

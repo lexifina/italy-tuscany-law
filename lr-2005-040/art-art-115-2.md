@@ -1,5 +1,5 @@
 Art. 115.2 Aggiudicazione
-1. Ai fini dell'aggiudicazione non sono ammesse offerte inferiori al prezzo di stima, salvo il caso di immobili occupati per i quali il prezzo di stima può essere decurtato fino al 25 per cento.
+1. Ai fini dell'aggiudicazione non sono ammesse offerte inferiori al prezzo di stima, salvo il caso di immobili occupati per i quali il prezzo posto a base d'asta può essere decurtato fino al 25 per cento.
 2. Gli occupanti abusivi, i loro parenti o affini fino al quarto grado non possono essere aggiudicatari.
 3. L'aggiudicazione è condizionata al versamento, quale caparra, di un importo pari al 10 per cento del prezzo di aggiudicazione e, comunque, non superiore ad euro 500.000,00 da effettuarsi entro tre giorni lavorativi successivi alla chiusura della seduta con le modalità indicate dall'azienda o ente del servizio sanitario regionale; in caso di omesso versamento l'azienda o ente del servizio sanitario regionale hanno facoltà di dar corso allo scorrimento della graduatoria nei confronti degli altri offerenti.
 4. Entro trenta giorni successivi alla seduta l'aggiudicatario deve procedere al versamento, con le stesse modalità, di un ulteriore importo pari al 20 per cento del prezzo di aggiudicazione, a titolo di anticipazione del prezzo, pena la decadenza dall'aggiudicazione e la perdita della caparra versata ai sensi del comma 3.

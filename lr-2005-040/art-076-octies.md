@@ -5,7 +5,7 @@ a bis) dal direttore della direzione regionale competente in materia di diritto 
 b) dal direttore del dipartimento di emergenza urgenza, o suo delegato;
 c) dai direttori delle centrali operative 118, o loro delegati;
 d) dal direttore sanitario delle aziende ospedaliere, o suo delegato, negli ambiti territoriali in cui insistono le stesse;
-e) dai direttori delle società della salute o, laddove non attivate, dai responsabili delle zone-distretto, o loro delegati;
+e) dai direttori delle società della salute o, laddove non attivate, dai responsabili delle zone- distretto, o loro delegati;
 f) da quattro membri, o loro delegati, designati in numero di due da ciascuno degli organismi regionali maggiormente rappresentativi delle associazioni di volontariato, secondo i criteri di cui all'articolo 76 septies, comma 1, lettera e);
 g) negli ambiti territoriali delle aziende unità sanitarie locali nei quali hanno sede operativa più di sessanta associazioni di cui all'articolo 76 ter, comma 3, da un membro ulteriore designato dall'organismo maggiormente rappresentativo di almeno dieci associazioni aventi sede operativa nel territorio dell'azienda unità sanitaria locale e non aderenti agli organismi di cui alla lettera f), laddove esistente, sulla base del numero di interventi realizzati nell'anno solare precedente la costituzione o il rinnovo del comitato;
 h) da due membri designati dal comitato regionale della CRI, o loro delegati .

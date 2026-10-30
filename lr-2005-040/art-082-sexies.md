@@ -1,6 +1,6 @@
 Art. 82 sexies - Competenze del Comitato di indirizzo e controllo. Gettone di presenza.
 1. Il Comitato di indirizzo e controllo esercita le funzioni di indirizzo dell'attività dell'ARS e in particolare:
-a) approva, su proposta del Direttore, il programma di attività entro il 30 novembre;
+a) adotta, su proposta del Direttore, il programma di attività entro il 31 dicembre;
 b) approva la relazione annuale dell'attività dell'ARS;
 c) valuta, anche sulla base della relazione annuale del Direttore, lo stato di attuazione del programma di attività e propone allo stesso indirizzi operativi utili a garantire il miglior raggiungimento degli obiettivi.
 2. Il Comitato di indirizzo e controllo elegge al suo interno il vicepresidente, che sostituisce il presidente in caso di assenza o impedimento temporaneo.

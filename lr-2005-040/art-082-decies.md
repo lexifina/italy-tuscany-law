@@ -1,4 +1,4 @@
-Art. 82 decies - Nomina e rapporto di lavoro del direttore
+Art. 82 decies Nomina e rapporto di lavoro del direttore
 1. Il direttore è nominato dal Presidente della Giunta regionale previo parere vincolante della commissione consiliare competente, che si esprime entro venti giorni dal ricevimento della proposta di nomina. Decorso inutilmente tale termine il Presidente procede alla nomina.
 2. L'incarico di direttore è conferito a persona di età non superiore ai sessantacinque anni in possesso di idonea laurea magistrale o equivalente, dotata di specifici requisiti scientifici nelle materie oggetto dell'attività dell'ARS, nonché di adeguata esperienza manageriale.
 3. L'incarico di direttore ha durata coincidente con quella della legislatura.
@@ -12,6 +12,6 @@ Art. 82 decies - Nomina e rapporto di lavoro del direttore
 9 bis. La valutazione del Direttore dell'ARS è effettuata dalla Giunta regionale su proposta dell'Organismo indipendente di valutazione.
 10. Il contratto può essere risolto anticipatamente con decreto del Presidente della Giunta regionale, che dispone la revoca della nomina, oltre che per i motivi previsti dall'articolo 15, comma 4, della l.r. 5/2008, per i seguenti motivi:
 a) grave perdita del conto economico;
-b) mancato conseguimento dei risultati previsti dal programma annuale di attività per cause imputabili alla responsabilità dello stesso direttore.
-b bis) valutazione negativa, effettuata ai sensi del comma 9 bis, sul conseguimento degli obiettivi definiti dal piano della qualità della prestazione organizzativa, di cui all'articolo 82 undecies 1;
-b ter) mancata adozione del bilancio di previsione o del bilancio di esercizio oppure adozione degli stessi oltre trenta giorni rispetto ai termini previsti all'articolo 82 septies decies, commi 2 e 7, per cause imputabili alla responsabilità dello stesso Direttore.
+b) mancato conseguimento dei risultati previsti dal programma triennale di attività per cause imputabili alla responsabilità dello stesso direttore.
+b bis) valutazione negativa, effettuata ai sensi del comma 9 bis, sul conseguimento degli obiettivi definiti dalla programmazione della prestazione organizzativa, di cui all'articolo 82 undecies 1;
+b ter) mancata adozione del budget o del bilancio di esercizio oppure adozione degli stessi oltre trenta giorni rispetto ai termini previsti all'articolo 82 septies decies, commi 2 e 7, per cause imputabili alla responsabilità dello stesso Direttore.

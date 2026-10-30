@@ -1,0 +1,7 @@
+Art. 50 ter Il direttore generale dell'IRCCS
+1. Il direttore generale dell'IRCCS, ferme restando le disposizioni di cui al decreto legislativo 16 ottobre 2003, n. 288 (Riordino della disciplina degli Istituti di ricovero e cura a carattere scientifico, a norma dell'articolo 42, comma 1, della legge 16 gennaio 2003, n. 3), è nominato dal Presidente della Giunta regionale, sentito il Ministro della salute, nel rispetto delle disposizioni di cui all'articolo 37. Qualora l'IRCCS provenga dalla trasformazione di una azienda ospedaliero universitaria, per la nomina è acquisita l'intesa con il rettore dell'università degli studi.
+2. Il direttore generale:
+a) adotta lo schema di regolamento di organizzazione e funzionamento dell'IRCCS;
+b) assicura la coerenza degli atti di gestione con gli indirizzi e con i programmi definiti dal consiglio di indirizzo e verifica;
+c) è responsabile della gestione complessiva ed ha la rappresentanza legale dell'IRCCS. Al direttore generale sono riservati gli atti di cui all'articolo 36, comma 3.
+3. Al direttore generale dell'IRCCS si applicano le cause di decadenza e revoca dalla nomina previste dall'articolo 39.

@@ -4,8 +4,8 @@ Art. 76 ter - Sistema sanitario di emergenza urgenza
 a) un sistema di allarme sanitario;
 b) un sistema territoriale di soccorso;
 c) un sistema ospedaliero di emergenza.
-2. Il sistema di allarme sanitario è composto dalle aziende unità sanitarie locali attraverso le centrali operative territoriali alle quali affluiscono le richieste di intervento sanitario di emergenza tramite il numero unico nazionale. Le centrali operative svolgono le seguenti funzioni:
-a) ricezione della richiesta di intervento;
+2. Il sistema di allarme sanitario è composto dalle centrali operative territoriali delle aziende unità sanitarie locali, alle quali affluiscono le richieste di intervento sanitario di emergenza tramite il numero telefonico unico di emergenza europeo 112. Le centrali operative svolgono le seguenti funzioni:
+a) abrogata;
 b) valutazione del grado di complessità dell'intervento da attivare;
 c) attivazione e coordinamento dell'intervento stesso.
 3. Il sistema territoriale di soccorso è composto dalle aziende unità sanitarie locali, dai comitati della Croce rossa italiana (CRI) e dalle associazioni di volontariato iscritte nell'elenco di cui all'articolo 76 quinquies, nonché dagli organismi rappresentativi delle associazioni di volontariato e dal Comitato regionale della CRI.

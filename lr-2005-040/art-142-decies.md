@@ -1,2 +1,2 @@
 Art. 142 decies Disposizione transitoria relativa agli elenchi degli aspiranti direttori amministrativi, sanitari e dei servizi sociali
-1. Fino alla costituzione degli elenchi degli aspiranti direttori amministrativi, sanitari e dei servizi sociali ai sensi dell'articolo 3 del d.lgs. 171/2016 in conformità all'accordo ivi previsto, si applicano le procedure vigenti alla data di entrata in vigore del presente articolo.
+1. Fino alla costituzione degli elenchi degli aspiranti direttori amministrativi, sanitari e dei servizi sociali ai sensi dell' articolo 3 del d.lgs. 171/2016in conformità all'accordo ivi previsto, si applicano le procedure vigenti alla data di entrata in vigore del presente articolo.
