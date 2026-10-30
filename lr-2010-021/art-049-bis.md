@@ -1,0 +1,5 @@
+Art. 49 bis - Particolari tipologie strutturali cinematografiche
+1. Nel rispetto dell'articolo 22 (Apertura di sale cinematografiche) del decreto legislativo 22 gennaio 2004, n. 28 (Riforma della disciplina in materia di attività cinematografiche, a norma dell'articolo 10 della l. 6 luglio 2002, n. 137), ai fini della presente legge è adottata la seguente classificazione per tipologia strutturale cinematografica "multisala":
+a) piccola multisala: multisala comprendente un massimo di quattro sale, per un numero complessivo di posti non superiore a settecento;
+b) media multisala: multisala comprendente da cinque ad un massimo di otto sale;
+c) grande multisala: multisala comprendente più di otto sale.
