@@ -1,0 +1,4 @@
+Art. 150 quaterdecies - Contributo straordinario al Comune di Abetone
+1. È assegnato per l'anno 2012 al Comune di Abetone un contributo straordinario una tantum, pari ad euro 100.000,00, destinato a finanziare progetti d'investimento finalizzati a contrastare lo stato di difficoltà economica del sistema neve nella Montagna pistoiese.
+2. La Giunta regionale stabilisce con propria deliberazione le modalità per l'assegnazione, l'erogazione e la rendicontazione del contributo di cui al comma 1.
+3. Per l'attuazione di quanto previsto al comma 1, è autorizzata la spesa di euro 100.000,00 per l'anno 2012, cui si fa fronte con gli stanziamenti dell'UPB 516 "Sviluppo locale - Spese di investimento" del bilancio di previsione 2012.
