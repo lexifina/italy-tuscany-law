@@ -1,0 +1,34 @@
+Legge regionale
+14 ottobre 2014
+59
+Modifiche alla legge regionale 26 luglio 2002, n. 32 (Testo unico della normativa della Regione Toscana in materia di educazione, istruzione, orientamento, formazione professionale e lavoro), in materia di educazione, istruzione, orientamento, formazione professionale e lavoro.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, commi terzo e quarto, della Costituzione;
+Visto l'articolo 4, comma 1, lettera a), dello Statuto;
+Vista la legge regionale 26 luglio 2002, n. 32 (Testo unico della normativa della Regione Toscana in materia di educazione, istruzione, orientamento, formazione professionale e lavoro);
+Vista la sentenza della Corte costituzionale 5 novembre 2010, n. 309;
+Visto il parere favorevole, con raccomandazioni, del Consiglio delle autonomie locali espresso nella seduta del 15 settembre 2014;
+Visto il parere istituzionale favorevole della Prima Commissione espresso nella seduta del 25 settembre 2014;
+Considerato quanto segue:
+1. Per assicurare la partecipazione delle istituzioni scolastiche alla definizione della programmazione regionale in materia di educazione, istruzione e formazione, sono individuate forme di rappresentanza delle istituzioni scolastiche stesse;
+2. Al fine di governare i processi connessi all'istruzione e alla formazione, supportare le attività relative alla vigilanza per l'assolvimento del diritto-dovere all'istruzione e formazione, nonché supportare la programmazione dell'offerta formativa e il dimensionamento della rete scolastica, è disciplinata l'anagrafe regionale degli studenti, che costituisce altresì uno strumento essenziale di coordinamento con le anagrafi degli enti locali;
+3. Per assicurare un alto livello del successo scolastico, il sistema pubblico dell'orientamento viene potenziato e integrato con le strategie dell'orientamento permanente;
+4. Per favorire l'occupabilità e ridurre il divario tra domanda e offerta di lavoro si ritiene opportuno assicurare una maggiore aderenza ai fabbisogni formativi del sistema economico-produttivo e dei singoli in un'ottica di "lifelong learning", intesa come educazione permanente lungo tutto l'arco della vita;
+5. Per dare organicità alla programmazione dell'offerta formativa, la Regione definisce gli indirizzi per la realizzazione degli interventi a carattere strategico in ambiti produttivi prioritari per lo sviluppo dell'economia regionale, degli interventi rispondenti ai fabbisogni territoriali del sistema produttivo e alla domanda individuale di singoli e imprese, finalizzati all'occupazione;
+6. Per finalizzare la formazione agli obiettivi occupazionali:
+- sono previste, in favore degli organismi formativi, misure premianti l'efficacia dei percorsi realizzati in relazione al raggiungimento di risultati occupazionali;
+- sono previste, nell'ambito dei percorsi formativi, esperienze di stage in contesti lavorativi;
+- è introdotta, quale criterio per l'accreditamento degli organismi formativi, la valutazione dei risultati raggiunti, anche con riferimento agli esiti occupazionali dei percorsi formativi realizzati.
+7. In una logica di piena trasparenza e monitoraggio del sistema di istruzione, formazione e lavoro, è prevista la realizzazione di un sistema di banche dati integrate che permettano la tracciabilità dei percorsi di studio e lavoro dei cittadini;
+8. Per realizzare un'offerta formativa riconoscibile e trasparente per l'utenza, tanto nei contenuti quanto nella tempistica di erogazione, è istituito un catalogo regionale dell'offerta formativa e sono introdotte disposizioni tese a rendere conoscibile il successo formativo degli interventi realizzati;
+9. Al fine di realizzare l'integrazione tra scuola, formazione e lavoro e contrastare la dispersione scolastica è istituito il sistema di istruzione e formazione professionale (IeFP), con percorsi di qualifica realizzati sia all'interno degli istituti professionali di stato, sia nell'ambito dell'offerta regionale di formazione professionale. Si disciplina pertanto in maniera organica il sistema di istruzione e formazione professionale, in coerenza con quanto stabilito dalla Corte Costituzionale con sentenza n. 309/2010;
+10. Al fine di qualificare gli organismi formativi a garanzia degli utenti sono modificati i criteri per l'accreditamento degli organismi formativi;
+11. Per semplificare la gestione degli interventi di formazione sono introdotte disposizioni finalizzate a ridurre gli adempimenti burocratici a carico degli organismi formativi;
+12. Per aumentare le opportunità occupazionali dei giovani è promossa l'integrazione tra formazione e mondo del lavoro attraverso il rafforzamento della filiera tecnica e professionale;
+13. Al fine di garantire il diritto al riconoscimento e alla valorizzazione delle competenze acquisite si è sviluppato il sistema di certificazione delle competenze anche con riferimento a quelle acquisite in contesti non formali e informali, nel rispetto delle disposizioni del decreto legislativo 16 gennaio 2013, n. 13 (Definizione delle norme generali e dei livelli essenziali delle prestazioni per l'individuazione e validazione degli apprendimenti non formali e informali e degli standard minimi di servizio del sistema nazionale di certificazione delle competenze, a norma dell'articolo 4, commi 58 e 68, della legge 28 giugno 2012, n. 92) sul sistema nazionale di certificazione delle competenze;
+14. Per superare le disomogeneità nella gestione dei servizi esistenti a livello territoriale e tenuto conto della revisione della governance dei servizi per l'impiego operata a livello nazionale, è istituita l'Agenzia regionale del lavoro, alla quale sono attribuite le funzioni e i compiti che la vigente l.r. 32/2002 attribuisce alle province;
+15. L'efficacia delle norme che disciplinano l'Agenzia regionale del lavoro decorre dal termine stabilito dalla legge regionale di riordino delle funzioni provinciali in materia di mercato del lavoro, che verrà approvata ai sensi della legge 7 aprile 2014, n. 56 (Disposizioni sulle città metropolitane, sulle province, sulle unioni e fusioni di comuni);
+16. Al fine di programmare e gestire direttamente gli interventi di formazione professionale, la Regione intende riassumere le competenze amministrative in tale materia attribuite dalla vigente l.r. 32/2002 alle province. Con la legge regionale di riordino delle funzioni provinciali, di cui al punto 15, si provvederà pertanto al trasferimento alla Regione delle funzioni attualmente svolte dalle province in materia di formazione professionale nonché in materia di istruzione e orientamento, fatte salve le funzioni fondamentali che devono essere esercitate dalle province ai sensi dell'articolo 1, comma 85, della l. 56/2014. La legge regionale di riordino provvederà, infine, alle conseguenti modifiche della l.r. 32/2002 e stabilirà il termine dal quale opererà il riordino delle suddette funzioni;
+Approva la presente legge
