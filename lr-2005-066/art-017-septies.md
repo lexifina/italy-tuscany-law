@@ -1,0 +1,8 @@
+Art. 17 septies - Esercizio dell'ittiturismo
+1. L'imprenditore ittico che intende esercitare l'attività di ittiturismo presenta allo sportello unico delle attività produttive (SUAP) del comune ove si svolge l'attività di ittiturismo, la segnalazione certificata di inizio attività (SCIA) ai sensi dell'articolo 19 della legge 7 agosto 1990, n. 241 (Nuove norme in materia di procedimento amministrativo e di diritto di accesso ai documenti amministrativi) in cui dichiara, in particolare:
+a) il titolo di proprietà o di disponibilità dei beni adibiti all'attività di ittiturismo e, nel caso di edifici, la loro conformità alle norme edilizie e igienico-sanitarie vigenti;
+b) il rispetto della normativa in materia previdenziale e assicurativa.
+2. L'acquacoltore, nella SCIA, dichiara di realizzare il rapporto di principalità ai sensi dell'articolo 17 octies.
+3. Lo SUAP comunica alla competente struttura della Giunta regionale le SCIA ricevute.
+4. Ai fini della presentazione della SCIA è utilizzata la modulistica definita dal tavolo tecnico regionale per lo sviluppo dei servizi SUAP istituito dalla Giunta regionale con deliberazione 7 marzo 2011, n. 129, in attuazione delle disposizioni di cui agli articoli 37 e 42 della legge regionale 23 luglio 2009, n. 40 (Norme sul procedimento amministrativo, per la semplificazione e la trasparenza dell'attività amministrativa).
+5. L'imprenditore ittico, di cui al comma 2, tiene un registro riportante le ore dedicate all'attività di ittiturismo e quelle dedicate all'attività di pesca.

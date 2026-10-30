@@ -1,0 +1,4 @@
+Art. 17 quinquies - Somministrazione alimenti e bevande a bordo o a terra
+1. La somministrazione di alimenti e bevande a bordo o a terra è soggetta alle disposizioni del regolamento regionale emanato con decreto del Presidente della Giunta regionale 1 agosto 2006, n. 40/R (Regolamento di attuazione del regolamento CE n. 852/2004 del Parlamento europeo e del Consiglio del 29 aprile 2004 sull'igiene dei prodotti alimentari e del regolamento CE n. 853/2004 del Parlamento europeo e del Consiglio del 29 aprile 2004 che stabilisce norme specifiche in materia di igiene per gli alimenti di origine animale).
+2. Gli alimenti somministrati devono essere in prevalenza provenienti dalla pesca del soggetto autorizzato.
+3. Per la preparazione e la somministrazione di alimenti e bevande a terra non è consentito l'utilizzo di strutture fisse.
