@@ -1,0 +1,2 @@
+Art. 24 bis - Norma transitoria
+1. Nelle more dell'approvazione della legge regionale di attuazione del regolamento UE n. 1308/2013 del Parlamento europeo e del Consiglio del 17 dicembre 2013 recante organizzazione comune dei mercati dei prodotti agricoli e che abroga i regolamenti (CEE) n. 922/72, (CEE) n. 234/79, (CE) n. 1037/2001 e (CE) n. 1234/2007 del Consiglio, le funzioni attribuite alle province sono trasferite alla Regione.
