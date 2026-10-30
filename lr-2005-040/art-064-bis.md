@@ -1,0 +1,12 @@
+Art. 64 bis - Rapporto di lavoro del responsabile di zona
+1. L'incarico di responsabile di zona può essere conferito a un soggetto in servizio che non abbia compiuto il sessantacinquesimo anno di età ed in particolare: :
+a) un dirigente dipendente del servizio sanitario regionale o del comune con almeno cinque anni di qualificata attività di direzione tecnico sanitaria o tecnico amministrativa in ambito sanitario o socio-sanitario con autonomia gestionale e con diretta responsabilità delle risorse umane, tecniche o finanziarie;
+b) soggetti in possesso di diploma di laurea con almeno cinque anni di qualificata attività di direzione tecnico sanitaria o tecnico amministrativa in ambito sanitario o socio-sanitario o socio-assistenziale con autonomia gestionale e con diretta responsabilità delle risorse umane, tecniche o finanziarie, operanti in organismi, aziende o enti pubblici o privati;
+c) soggetti in possesso dei requisiti richiesti per la nomina a direttore dei servizi sociali di cui all'articolo 40, comma 5;
+d) un medico di base convenzionato da almeno dieci anni, in possesso di titoli comprovanti idonea formazione manageriale.
+d bis) uno specialista ambulatoriale interno con incarico da almeno dieci anni, in possesso di titoli comprovanti idonea formazione manageriale.
+2. Il rapporto di lavoro del responsabile di zona, di durata non inferiore a tre anni e non superiore a cinque anni, rinnovabile, è disciplinato da contratto di diritto privato, redatto secondo uno schema-tipo approvato dalla Giunta regionale nel rispetto delle norme di cui al libro V, titolo II, del codice civile.
+2 bis. Non è consentita la nomina a direttore di zona per più di tre mandati consecutivi nello stesso incarico presso la stessa zona; la durata complessiva dell'incarico non può comunque essere superiore a dieci anni.
+3. Il trattamento economico del direttore di zona è determinato nella misura del settanta per cento del trattamento economico del direttore generale delle aziende USL.
+4. Il servizio prestato in forza del contratto è utile ad ogni effetto ai fini dei trattamenti di quiescenza e di previdenza nel rispetto della normativa vigente in materia previdenziale nonché ai fini dell'anzianità.
+5. La nomina a responsabile di zona dei dipendenti della Regione, di un ente o di una azienda regionale ovvero di una azienda sanitaria con sede nel territorio regionale determina il collocamento in aspettativa senza assegni ed il diritto al mantenimento del posto; l'aspettativa è concessa entro sessanta giorni dalla richiesta.

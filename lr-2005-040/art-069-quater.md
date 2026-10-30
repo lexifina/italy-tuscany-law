@@ -1,0 +1,8 @@
+Art. 69 quater - Dipartimenti territoriali
+1. Il dipartimento territoriale è il modello ordinario per il governo clinico delle attività territoriali delle aziende unità sanitarie locali.
+2. Il dipartimento di cui al comma 1 ha carattere tecnico professionale e multidisciplinare e coordina l'integrazione dei principali percorsi assistenziali, presidiando l'aggiornamento professionale degli operatori, la qualità, la sicurezza, l'efficienza e l'innovazione organizzativa nel rispetto dell'equità di accesso ai servizi nelle varie articolazioni zonali.
+3. Al dipartimento di cui al comma 1 è preposto un direttore nominato dal direttore generale tra i dirigenti con incarico di direzione delle unità operative complesse aggregate nel dipartimento.
+4. Presso ogni azienda unità sanitaria locale, è istituito, nel rispetto delle competenze demandate alla contrattazione collettiva dalla normativa vigente, il dipartimento della medicina generale, composto dai coordinatori delle AFT.
+5. Il dipartimento della medicina generale partecipa alla programmazione aziendale e alla definizione dei percorsi inerenti le cure sanitarie territoriali e la continuità assistenziale ospedale-territorio dell'azienda unità sanitaria locale.
+6. Il dipartimento della medicina generale, sulla base degli obiettivi attribuiti dalla direzione generale per le attività di propria competenza, negozia con la stessa direzione le risorse necessarie nell'ambito dei suddetti percorsi.
+7. Il responsabile di zona si raccorda con i coordinatori di AFT per la declinazione territoriale degli obiettivi di cui al comma 6.

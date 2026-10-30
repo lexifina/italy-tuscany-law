@@ -1,0 +1,2 @@
+Art. 71 octies decies - Sistema informativo
+1. Le società della salute aderiscono alla rete telematica regionale ed adottano soluzioni tecnologiche ed informative nel rispetto degli standard regionali assunti nell'ambito della medesima rete, secondo quanto previsto dalla legge regionale 26 gennaio 2004, n. 1 (Promozione dell'amministrazione elettronica e della società dell'informazione e della conoscenza nel sistema regionale. Disciplina della "Rete telematica regionale Toscana").

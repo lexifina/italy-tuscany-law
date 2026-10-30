@@ -1,0 +1,3 @@
+Art. 71 terdecies - Contabilità della società della salute
+1. La società della salute adotta una contabilità economica; in particolare, adotta bilanci economici di previsione pluriennali e annuali ed il bilancio di esercizio, sulla base di uno schema tipo approvato con deliberazione della Giunta regionale.
+2. La società della salute adotta inoltre il sistema del budget come strumento di controllo della domanda, della qualità dei servizi e dell'allocazione delle risorse .

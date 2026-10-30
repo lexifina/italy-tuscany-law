@@ -1,0 +1,2 @@
+Art. 71 sexies decies - Personale
+1. Il personale della società della salute è assunto secondo la normativa vigente, previa verifica della disponibilità di personale presso gli enti consorziati ed espletamento delle procedure. In caso di assunzioni dirette, ovvero di trasferimenti, al personale dipendente delle società della salute si applica il trattamento giuridico ed economico previsto per i dipendenti del servizio sanitario nazionale .

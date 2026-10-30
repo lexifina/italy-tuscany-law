@@ -1,0 +1,6 @@
+Art. 76 undecies - Regolamento di attuazione
+1. La Giunta regionale definisce con regolamento di attuazione, da adottarsi entro novanta giorni dalla entrata in vigore della presente legge, in particolare:
+a) i requisiti volti a garantire la continuità e la qualità del servizio, necessari ai fini dell'iscrizione nell'elenco regionale di cui all'articolo 76 quinquies;
+b) le modalità di aggiornamento dell'elenco regionale, per quanto concerne l'iscrizione, la modifica e la cancellazione;
+c) le modalità e le procedure per lo svolgimento della verifica periodica di cui all'articolo 76 quinquies, comma 4 ;
+d) i criteri per la formulazione del budget, di cui all'articolo 76 novies.

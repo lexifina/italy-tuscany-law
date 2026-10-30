@@ -1,0 +1,3 @@
+Art. 49 septies - Struttura di supporto all'Organismo toscano per il governo clinico
+1. La Giunta regionale garantisce all'Organismo toscano per il governo clinico, nell'ambito della direzione regionale competente in materia di diritto alla salute, una sede idonea, nonché un adeguato supporto tecnico-professionale e amministrativo.
+2. Il supporto amministrativo è garantito dal settore competente in materia di governo clinico, attraverso il suo dirigente, che svolge funzioni di segretario dell'ufficio di coordinamento e del Comitato tecnico scientifico , da un funzionario per le attività amministrative e contabili a supporto della operatività dell'Organismo toscano per il governo clinico e da adeguato personale amministrativo di supporto.

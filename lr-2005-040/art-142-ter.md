@@ -1,0 +1,6 @@
+Art. 142 ter - Norma di prima applicazione dell'articolo 55 bis
+1. Il direttore generale, compatibilmente con le esigenze organizzative aziendali, adotta, nel termine massimo di un anno dall'entrata in vigore del presente articolo, le misure di cui all'articolo 55 bis, commi 2 e 3, nei confronti del personale che si trova nelle condizioni di cui all'articolo 55 bis, comma 1.
+2. Trascorsi novanta giorni dal termine di cui al comma 1, la Giunta regionale invia al Consiglio regionale una relazione nella quale si dà conto:
+a) dei criteri adottati per la concreta individuazione dei casi e delle procedure per la verifica delle dichiarazioni degli interessati;
+b) del numero dei casi individuati e dei casi in cui si è proceduto all'assegnazione ad altra struttura o alla mobilità interaziendale, evidenziando la motivazione quando ciò non è stato possibile;
+c) di eventuali criticità incontrate nelle diverse fasi di applicazione della norma.

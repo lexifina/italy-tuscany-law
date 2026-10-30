@@ -1,0 +1,16 @@
+Art. 12 bis - Conferenza zonale integrata
+1. La conferenza zonale integrata è la conferenza zonale dei sindaci di cui all'articolo 34 della legge regionale 24 febbraio 2005, n. 41 (Sistema integrato di interventi e servizi per la tutela dei diritti di cittadinanza sociale), integrata con il direttore generale dell'azienda unità sanitaria locale o suo delegato.
+2. I componenti della conferenza zonale integrata intervengono ognuno con le proprie quote di partecipazione così determinate:
+a) il 66 per cento del totale è assegnato ai rappresentanti delle amministrazioni locali, che lo ripartiscono fra di loro in proporzione alla popolazione residente;
+b) il 34 per cento del totale è assegnato all'azienda sanitaria locale di riferimento.
+3. La conferenza zonale integrata assume le proprie deliberazioni con il voto favorevole della maggioranza dei rappresentanti degli enti locali e con il voto favorevole dei componenti che rappresentano almeno il 67 per cento delle quote di partecipazione, ad eccezione dell'intesa di cui al comma 5, lettera c).
+4. Alla conferenza di cui al presente articolo si applica l'articolo 34, commi 3, 4 e 5, della l.r. 41/2005.
+5. La conferenza zonale integrata esercita le funzioni di indirizzo degli obiettivi sanitari, socio-sanitari e sociali integrati di livello locale in coerenza con la programmazione aziendale e sulla base del profilo di salute ed in particolare:
+a) emana gli indirizzi per l'elaborazione del piano integrato di salute (PIS), tenuto conto del profilo di salute e delle risorse a disposizione;
+b) approva il PIS;
+c) esprime l'intesa necessaria per la nomina del responsabile di zona;
+d) coordina gli strumenti della programmazione operativa di livello zonale;
+e) approva la convenzione per l'esercizio delle funzioni di integrazione socio-sanitaria, di cui all'articolo 70 bis;
+f) esprime l'intesa necessaria per la nomina del coordinatore sociale di zona di cui all'articolo 37 della l.r. 41/2005.
+6. Il funzionamento della conferenza zonale integrata è disciplinato da un apposito regolamento adottato dalla conferenza stessa. Il regolamento può prevedere la possibilità di delega da parte del sindaco a favore dell'assessore competente e da parte del direttore generale nei confronti di un componente del comitato di direzione ad esclusione del responsabile di zona-distretto. Il regolamento può prevedere la costituzione di un esecutivo della conferenza.
+7. Laddove costituite le società della salute le competenze della conferenza zonale integrata sono esercitate dall'assemblea dei soci di cui all'articolo 71 sexies.

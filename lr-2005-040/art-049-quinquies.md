@@ -1,0 +1,21 @@
+Art. 49 quinquies - Ufficio di coordinamento
+1. L'Ufficio di coordinamento dell'Organismo toscano per il governo clinico è composto:
+a) dal Coordinatore;
+b) dai responsabili, o loro delegati, degli organismi costituiti ai sensi dell'articolo 43;
+c) dai coordinatori delle commissioni permanenti operanti nell'ambito del Comitato tecnico scientifico;
+d) da quattro medici, un infermiere e un rappresentante delle altre professioni sanitarie eletti dal Comitato tecnico scientifico tra i suoi componenti, su proposta del Coordinatore;
+e) abrogata;
+f) dal dirigente regionale competente in materia di governo clinico, o suo delegato ;
+g) dal coordinatore della commissione di valutazione delle tecnologie ed investimenti sanitari o suo delegato;
+h) dal presidente della commissione regionale per la formazione sanitaria o suo delegato;
+i) dal presidente della commissione terapeutica regionale o suo delegato;
+l) dal coordinatore del comitato strategico della rete pediatrica costituito a seguito della riorganizzazione di cui all'articolo 33 bis o suo delegato.
+l bis) dal direttore generale dell'ISPRO relativamente alle funzioni di governo clinico in ambito oncologico.
+2. L'Ufficio di coordinamento svolge le seguenti funzioni:
+a) raccordo e coordinamento tra le attività delle singole strutture di governo clinico, di cui all'articolo 43;
+b) espressione di pareri e formulazione di proposte su specifiche questioni inerenti all'operatività delle diverse strutture del governo clinico;
+c) proposta al Comitato tecnico scientifico, sentito il direttore della direzione regionale competente in materia di diritto alla salute, del programma annuale di attività dell'Organismo toscano per il governo clinico;
+d) formulazione delle designazioni previste dalla normativa vigente o richieste dalla direzione regionale competente in materia di diritto alla salute, qualora motivi di particolare urgenza non consentano la convocazione del Comitato tecnico scientifico;
+e) proposta al Comitato tecnico scientifico del regolamento interno dell'Organismo toscano per il governo clinico e delle eventuali modifiche.
+3. Il Coordinatore cura l'insediamento dell'Ufficio di coordinamento.
+4. L'Ufficio di coordinamento si riunisce, di norma, con periodicità mensile, nonché, a seguito di apposita convocazione del Coordinatore, qualora sia necessario in relazione a specifici accadimenti o a situazioni di particolare urgenza.

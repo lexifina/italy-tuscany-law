@@ -1,0 +1,4 @@
+Art. 55 bis - Criteri per l'assegnazione del personale nelle strutture organizzative
+1. In sede di assegnazione del personale, la direzione aziendale adotta le misure necessarie ad evitare che dipendenti legati da vincoli di parentela o di affinità sino al terzo grado, di coniugio o convivenza, prestino servizio in rapporto di subordinazione gerarchica nell'ambito della medesima struttura organizzativa, come definita ai sensi degli articoli 60 e seguenti.
+2. Il personale che, a seguito dell'assegnazione, venga a trovarsi in una delle condizioni di cui al comma 1, è assegnato ad altra struttura organizzativa già esistente presso la stessa azienda sanitaria, in posizione compatibile con i requisiti professionali posseduti.
+3. Per le finalità di cui al comma 1, possono essere attivate anche procedure di mobilità interaziendale esclusivamente su base volontaria e nel rispetto delle disposizioni contrattuali vigenti.

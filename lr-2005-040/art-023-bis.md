@@ -1,0 +1,6 @@
+Art. 23 bis - Piano di area vasta
+1. Il piano di area vasta è lo strumento attraverso il quale si armonizzano e si integrano, su obiettivi unitari di salute ed in coerenza con la programmazione regionale, i livelli di programmazione dell'azienda unità sanitaria locale e dell'azienda ospedaliera universitaria.
+2. Il piano di area vasta, in particolare, coordina l'offerta complessiva dei percorsi assistenziali, definiti attraverso i dipartimenti interaziendali di area vasta, garantendo l'appropriatezza degli interventi, anche tenendo conto delle particolari condizioni delle zone disagiate e montane del territorio.
+3. Il piano di area vasta è proposto, in conformità con il piano sanitario e sociale integrato regionale, dal direttore della direzione regionale competente in materia di diritto alla salute coadiuvato dal comitato tecnico di cui all'articolo 9 ter, comma 2, previa intesa con la conferenza aziendale dei sindaci ed il rettore dell'università per quanto di competenza.
+4. Il piano di area vasta è approvato con deliberazione della Giunta regionale, previa acquisizione del parere della competente commissione consiliare, che si esprime entro quaranta giorni dal ricevimento.
+5. Il piano di area vasta ha durata analoga al ciclo di programmazione sociale e sanitaria integrata regionale ed è aggiornato annualmente.

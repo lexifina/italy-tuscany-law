@@ -1,0 +1,4 @@
+Art. 71 vicies bis Finalità
+1. Le case della salute, nell'ambito della zona-distretto, assicurano un punto unitario di accesso alla rete integrata dei servizi garantendo una presa in carico complessiva della persona.
+2. Le case della salute favoriscono, attraverso la contiguità spaziale dei servizi e la multidisciplinarietà degli interventi, l'integrazione dei livelli essenziali delle prestazioni sanitarie, socio-sanitarie e sociali.
+3. Le case della salute favoriscono altresì la valorizzazione del ruolo delle comunità locali ai fini della prevenzione e promozione della salute anche nell'ambito di specifiche progettualità.
