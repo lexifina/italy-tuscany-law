@@ -1,0 +1,2 @@
+Art. 14 sexies - Disposizioni transitorie
+1. Ferme restando le disposizioni di prima applicazione di cui all'articolo 14 quinquies, ai procedimenti relativi al rilascio dell'autorizzazione per la realizzazione, l'esercizio e la modifica delle opere di sbarramento ed opere di ritenuta e a quelli connessi alle denunce di esistenza degli impianti esistenti, avviati alla data di entrata in vigore della l.r. 24/2016 si applicano le disposizioni della presente legge, come modificata dalla l.r. 24/2016, fatte salve le fasi procedurali e gli adempimenti già definiti ove compatibili.

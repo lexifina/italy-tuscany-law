@@ -1,0 +1,3 @@
+Art. 14 bis - Accordi con gli ordini professionali
+1. La Regione promuove accordi o convenzioni con gli ordini professionali interessati, al fine di concordare tariffe agevolate per la redazione degli elaborati progettuali e tecnici necessari per l'adempimento degli obblighi previsti dalla presente legge a carico dei proprietari o dei soggetti che, a qualunque titolo, eserciscono gli invasi.
+2. Gli accordi e le convenzioni di cui al comma 1 non comportano oneri a carico delle amministrazioni pubbliche interessate.

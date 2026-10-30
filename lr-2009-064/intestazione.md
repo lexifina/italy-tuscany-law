@@ -1,0 +1,30 @@
+Legge regionale
+5 novembre 2009
+64
+Disciplina delle funzioni amministrative in materia di progettazione, costruzione ed esercizio degli sbarramenti di ritenuta e dei relativi bacini di accumulo.
+REGIONE TOSCANA
+PREAMBOLO
+Visto l'articolo 117, terzo comma, della Costituzione;
+Visto il decreto legislativo 31 marzo 1998, n. 112 (Conferimento di funzioni e compiti amministrativi dello Stato alle regioni ed agli enti locali, in attuazione del capo I della L. 15 marzo 1997, n. 59), ed in particolare l'articolo 89, comma 1, lettera b);
+Vista la legge regionale 11 dicembre 1998, n. 91 (Norme per la difesa del suolo), ed in particolare l'articolo 12, comma 1, lettera f) e l'articolo 14, comma 1, lettera f);
+Visto il decreto legislativo 3 aprile 2006, n. 152 (Norme in materia ambientale) ed in particolare l'articolo 61, comma 3;
+Visto il parere favorevole del Consiglio delle autonomie locali espresso nella seduta del 24 luglio 2009;
+Considerato quanto segue:
+1. Si è manifestata la necessità di modificare le disposizioni della legge regionale 7 gennaio 1994, n. 1 (Disciplina delle funzioni amministrative attribuite alla Regione in materia di progettazione, costruzione ed esercizio degli sbarramenti di ritenuta e dei relativi bacini di accumulo), che disciplina le funzioni attribuite alle regioni ai sensi dell'abrogata legge 18 maggio 1989, n. 183 (Norme per il riassetto organizzativo e funzionale della difesa del suolo), in materia di difesa del suolo e della legge 21 ottobre 1994, n. 584 (Conversione in legge, con modificazioni, del decreto-legge 8 agosto 1994, n. 507, recante: "Misure urgenti in materia di dighe");
+2. È emersa l'esigenza di una nuova legge al fine di prendere atto del mutato quadro normativo di riferimento in ordine alle funzioni amministrative, attualmente delineato dal d.lgs. 112/1998, dal d.lgs. 152/2006, nonché del nuovo assetto delle competenze determinato dalla l.r. 91/1998, che ha attribuito alle province tutte le funzioni che prima erano svolte dagli uffici del genio civile;
+3. È necessario tener conto del nuovo assetto costituzionale delle competenze nell'ambito del quale la disciplina in oggetto, per quanto concerne la progettazione e costruzione degli impianti, si colloca sul piano della normativa tecnica "trasversale", finalizzata alla tutela della pubblica incolumità, mentre, per l'aspetto della tutela ambientale, è riconducibile alla "difesa del suolo", presentando punti di stretta interconnessione con materie di legislazione concorrente, tra le quali il "governo del territorio" e la "protezione civile";
+4. Abrogato;
+4 bis. L'istituzione del catasto regionale degli invasi risponde all'esigenza di dotarsi di un quadro conoscitivo completo ed aggiornato degli impianti presenti sul territorio regionale, anche se non ricadenti nel campo di applicazione della presente legge;
+4 ter. Abrogato;
+5. Si è reso necessario adeguare la parte che disciplina le fasi della progettazione alle nuove norme in materia di lavori pubblici, con l'introduzione delle corrette definizioni di "progetto preliminare" e "progetto definitivo", di cui al decreto legislativo 12 aprile 2006, n. 163 (Codice dei contratti pubblici relativi a lavori, servizi e forniture in attuazione delle direttive 2004/17/CE e 2004/18/CE), in luogo del progetto di "massima" ed "esecutivo" che attualmente costituisce la normativa di riferimento ai sensi all'articolo 2 della l. 584/1994 e dell'articolo 61, comma 3, del d.lgs.152/2006;
+5 bis) Nell'ottica del giusto bilanciamento tra sicurezza degli impianti e semplificazione e accelerazione delle procedure si è riscontrata inoltre l'esigenza:
+a) di prevedere, in conformità alla normativa nazionale di riferimento, la possibilità di derogare, caso per caso, alla disciplina contenuta nella legge e nelle relative disposizioni di attuazione, limitatamente agli impianti, esistenti, in costruzione o da autorizzare, aventi altezza non superiore a 5 metri, che determinano un invaso non superiore a 20.000 metri cubi e che presentino una distanza inferiore a 500 metri da abitazioni, strade ed infrastrutture, e per i quali possano essere esclusi rischi per l'incolumità pubblica, e con particolare attenzione a quei bacini di accumulo di importanza strategica in funzione antincendio certificati come tali dalle autorità competenti, sulla base di appositi criteri che dovranno essere definiti nel regolamento di attuazione della legge;
+b) di diversificare la documentazione a corredo della denuncia di esistenza degli sbarramenti e delle opere di ritenuta esistenti, riducendo gli oneri di allegazione per gli impianti regolarmente autorizzati e manutenuti, ovvero per gli impianti per i quali è comunque possibile attestare un basso livello di rischio, anche indotto.
+6. Abrogato;
+7. Con il regolamento di attuazione della legge sono disciplinati il procedimento per l'approvazione dei progetti ed il controllo sull'esercizio delle opere, nonché la suddivisione in classi degli impianti e la classificazione di rischio connessa; quanto agli aspetti procedurali, si è posta l'esigenza di:
+a) definire più chiaramente le ipotesi di regolarizzazione, autorizzazione in sanatoria e denuncia di esistenza degli impianti esistenti;
+b) integrare le casistiche contemplate introducendo una specifica disciplina per i casi di chiusura temporanea o di cessazione definitiva dell'impianto e, in connessione a tale ultima previsione, l'ipotesi di demolizione su istanza del soggetto interessato ovvero d'ufficio ove necessaria per la tutela della pubblica incolumità;
+8. Si è ritenuto altresì opportuno rinviare alla disciplina di dettaglio del regolamento:
+a) l'individuazione di parametri e specifiche tecniche univoci e coerenti con le definizioni adottate dalla normativa statale;
+b) la suddivisione degli impianti in classi e la creazione di un connesso sistema di classificazione del rischio, al fine di diversificare le modalità dei progetti da presentare, individuare i criteri di effettuazione del collaudo, ottimizzando tempi e modi dell'attività di controllo, in connessione alla rilevanza ed incidenza sul territorio dei singoli impianti;
+Si approva la presente legge

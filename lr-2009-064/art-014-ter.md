@@ -1,0 +1,10 @@
+Art. 14 ter - Oneri istruttori
+1. Per l'espletamento delle procedure istruttorie di cui alla presente legge sono stabiliti gli oneri istruttori nelle seguenti misure:
+a) per istruttorie a seguito di istanza di costruzione di nuovi invasi di cui all'articolo 3: euro 250,00;
+b) per istruttorie a seguito di istanza di interventi di adeguamento su invasi di cui all'articolo 3: euro 200,00;
+c) per istruttorie a seguito di istanza di dismissione di invasi di cui all'articolo 9, comma 2: euro 200,00.
+2. Per gli impianti esistenti di cui agli articoli 11 bis, 11 ter e 11 quater si applicano gli oneri istruttori nelle seguenti misure:
+a) per istruttorie a seguito di denuncia di esistenza di cui all'articolo 11 bis, comma 2 e all'articolo 11 ter, comma 1: euro 50,00;
+b) per istruttorie a seguito di denuncia di esistenza di cui all'articolo 11 bis, comma 3, lettera a), e all'articolo 11 ter, comma 2: euro 200,00;
+c) per istruttorie a seguito di denuncia di esistenza di cui all'articolo 11 bis, comma 3, lettera b), e all'articolo 11 quater: euro 300,00.
+3. Per gli impianti aventi finalità d'uso irriguo si applica una riduzione delle tariffe di cui al presente articolo pari al 30 per cento.
