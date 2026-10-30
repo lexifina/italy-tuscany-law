@@ -1,0 +1,7 @@
+Art. 138 quater - Interventi per la reindustrializzazione
+1. La Regione Toscana, nell'ambito delle proprie politiche di rilancio dell'economia e degli strumenti di programmazione, promuove azioni per la reindustrializzazione di aree che, in atti nazionali o negli stessi strumenti di programmazione regionale, sono riconosciute in situazione di grave crisi, tale da prospettare rilevanti problemi occupazionali e sociali, con possibili ricadute sulla realizzazione degli obiettivi generali della programmazione regionale.
+2. Ai fini del comma 1, la Regione Toscana, tramite la propria struttura operativa, realizza interventi per la riconversione delle aree di cui al comma 1, e per l'insediamento di nuove imprese, anche tramite l'acquisizione delle aree stesse.
+2 bis. Per l'attuazione di quanto previsto dal comma 2, è autorizzata la spesa di euro 5.000.000,00 per l'anno 2013, cui si fa fronte con gli stanziamenti della unità previsionale di base (UPB) 514 "Interventi per lo sviluppo del sistema economico e produttivo – Spese di investimento" del bilancio pluriennale a legislazione vigente 2012 – 2014, annualità 2013.
+2 ter. Agli oneri per gli esercizi successivi si fa fronte con legge di bilancio.
+2 quater. Qualora per l'attuazione degli interventi di cui al comma 2 si renda necessario procedere all'acquisizione delle aree riconosciute in situazione di grave crisi e alla successiva vendita, i relativi proventi sono finalizzati alla riduzione dell'indebitamento per pari importo.
+3. Abrogato.

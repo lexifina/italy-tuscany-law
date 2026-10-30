@@ -1,0 +1,5 @@
+Art. 130 bis - Interventi per assicurare la funzionalità del porto di Livorno
+1. In coerenza con gli strumenti regionali di programmazione e pianificazione ed al fine di assicurare la funzionalità del porto di Livorno, la Regione concorre finanziariamente, insieme all'Autorità portuale di Livorno, alla realizzazione degli interventi di escavo del porto medesimo.
+2. La Giunta regionale definisce con propria deliberazione le modalità per l'assegnazione, l'erogazione e la rendicontazione del contributo di cui al comma 1.
+3. Ai fini del concorso regionale di cui al comma 1 è autorizzata una spesa fino ad un massimo di euro 4.500.000,00, cui si fa fronte, rispettivamente nell'anno 2013 per euro 3.000.000,00 e nell'anno 2014 per euro 1.500.000,00, con gli stanziamenti della UPB 311 "Innovazione e sviluppo della rete infrastrutturale di trasporto – spese di investimento" del bilancio di previsione 2013 e del bilancio pluriennale a legislazione vigente 2013 - 2015, annualità 2014.
+4. Abrogato.
