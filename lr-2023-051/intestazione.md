@@ -1,0 +1,36 @@
+Legge regionale
+29 dicembre 2023
+51
+Misure urgenti a sostegno delle comunità e dei territori della Regione Toscana colpiti dai recenti eventi emergenziali.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, comma terzo, della Costituzione;
+Visti l'articolo 3, commi 2 e 3, e l'articolo 4, comma 1, lettera m bis), dello Statuto;
+Visto il decreto legislativo 2 gennaio 2018, n. 1 (Codice della protezione civile);
+Vista la legge regionale 21 Maggio 2008, n. 28 (Acquisizione della partecipazione azionaria nella società Sviluppo Italia Toscana S.C.p.A. e trasformazione nella società Sviluppo Toscana S.p.A.);
+Vista la legge regionale 12 dicembre 2017, n. 71 (Disciplina del sistema regionale degli interventi di sostegno alle imprese);
+Vista la legge regionale 23 novembre 2018, n. 62 (Codice del commercio);
+Vista la legge regionale 25 giugno 2020, n. 45 (Sistema regionale della protezione civile e disciplina delle relative attività);
+Considerato quanto segue:
+1. Dal 2 novembre 2023 la Toscana è stata interessata da un eccezionale evento meteorologico, caratterizzato da piogge di notevole e rilevante intensità, che ha colpito varie zone della regione causando eventi di piena significativi sul reticolo principale e minore, con gravi disagi alla popolazione e danni al sistema delle infrastrutture pubbliche;
+2. In conseguenza del grave evento sopracitato, il Presidente della Giunta regionale, con proprio decreto 2 novembre 2022, n. 182, ha dichiarato lo stato di emergenza regionale ai sensi dell'articolo 24, comma 2, della l.r. 45/2023;
+3. A livello nazionale, il Consiglio dei Ministri, con delibera del 3 novembre 2023, ha dichiarato lo stato di emergenza nazionale nei territori delle Province di Firenze, Livorno, Pisa, Pistoia e Prato, ai sensi e per gli effetti dell'articolo 7, comma 1, lettera c), e dell'articolo 24, comma 1, del d.lgs. 1/2018, stanziando cinque milioni di euro per i primi interventi urgenti di protezione civile nei territori suddetti;
+4. È successivamente intervenuta la delibera del Consiglio dei Ministri 5 dicembre 2023 (Estensione degli effetti della dichiarazione dello stato di emergenza, adottata con delibera del 3 novembre 2023 al territorio delle Province di Massa Carrara e di Lucca in conseguenza delle ulteriori ed eccezionali avverse condizioni metereologiche verificatesi a partire dal 29 ottobre 2023);
+5. Ai sensi dell'articolo 25 del predetto d.lgs. 1/2018, con ordinanza del Capo del Dipartimento della Protezione Civile 5 novembre 2023, n. 1037, pubblicata sulla Gazzetta Ufficiale n. 264 dell'11 novembre 2023 (Primi interventi urgenti di protezione civile in conseguenza degli eccezionali eventi meteorologici verificatisi a partire dal giorno 2 novembre 2023 nel territorio delle province di Firenze, Livorno, Pisa, Pistoia e Prato), il Presidente della Giunta regionale è nominato Commissario delegato per fronteggiare l'emergenza derivante dagli eventi calamitosi sopra richiamati;
+6. Sulla base di quanto previsto dalla citata ordinanza del Capo Dipartimento, il Commissario delegato ha avviato la ricognizione dei danni di cui all'articolo 4, comma 3, dell'ordinanza stessa per le prime misure di immediato sostegno al tessuto economico e sociale nei confronti della popolazione e delle attività economiche e produttive interessate dall'evento;
+7. Tale ricognizione è in corso di svolgimento e potrebbe concludersi solo nel mese di gennaio 2024;
+8. La situazione di danni diffusi in tante zone delle Province indicate, riferiti alle strutture sia private sia pubbliche, ha provocato difficoltà per la popolazione e le attività economiche produttive extra-agricole per poter riprendere le normali condizioni di vita e di lavoro;
+9. L'attuale assegnazione finanziaria da parte delle norme statali è del tutto insufficiente per dare positivo riscontro alle esigenze evidenziate dal territorio colpito, soprattutto in termini di danni alle strutture private, con particolare riferimento ai beni mobili di proprietà privata;
+10. Risulta la conseguente necessità di provvedere ad uno stanziamento finanziario straordinario regionale al fine di consentire un immediato avvio del ritorno alle normali condizioni di vita;
+11. L'intervento straordinario regionale a favore dei nuclei familiari viene realizzato in una modalità correlata al procedimento di ricognizione attualmente in corso da parte del Commissario regionale, al fine di semplificare le domande da parte dei cittadini danneggiati;
+12. Di conseguenza, solo al termine della predetta ricognizione l'amministrazione regionale potrà avere una visione completa della situazione di danno verificatasi per i nuclei familiari e disporre quindi, una risposta che corrisponda alle esigenze concrete della popolazione;
+13. In attesa della conclusione della ricognizione dei danni subiti dal sistema economico, e sulla base delle prime stime condotte, l'intervento straordinario regionale a favore delle attività economiche intende perseguire un duplice scopo:
+a) favorire la liquidità per fronteggiare la situazione di emergenza, e pertanto saranno prioritariamente attivati provvedimenti nella forma di abbattimento degli interessi, lasciando in un secondo tempo l'eventualità di concedere ristori una volta determinato il quadro dei danni e degli interventi del Governo e compatibilmente con le risorse del bilancio;
+b) intervenire con contributi a fondo perduto per far fronte a situazioni che rimangano escluse dagli interventi di ripristino previsti da analoghi provvedimenti nazionali.
+14. Si rende pertanto necessario rinviare alla deliberazione della Giunta regionale in sede di attuazione dell'articolo 4, la definizione dei criteri e delle modalità con cui il contributo regionale forfettario a favore dei nuclei familiari possa essere assegnato nella maniera più adeguata ai danni segnalati e alla loro entità;
+15. Analogamente, si rinvia alla deliberazione della Giunta regionale l'attuazione dell'articolo 5 che, in coerenza con le previsioni normative in materia di sostegno alle imprese, individuerà i criteri e le modalità operative degli interventi a favore delle imprese;
+16. Al fine di evitare la decadenza del titolo abilitativo, ai sensi e per gli effetti di cui all'articolo 127, comma 1, lettera c), della l.r. 62/2018, si interviene affinché non siano conteggiate dai comuni le assenze effettuate, nel periodo compreso tra il 2 novembre e il 31 dicembre 2023, in conseguenza degli eventi alluvionali, dagli operatori commerciali su aree pubbliche aventi la sede della propria impresa o titolari di posteggi nel territorio di uno dei comuni interessati dagli eventi alluvionali del 2 novembre 2023;
+17. L'applicazione della presente legge ai comuni individuati dal Commissario delegato, nell'ambito delle province indicate nella delibera del Consiglio dei Ministri, con ordinanza commissariale 15 novembre 2023, n. 98, come integrata dalla ordinanza commissariale 1° dicembre 2023, n. 108, nonché con le successive disposizioni riguardanti il riconoscimento dei territori regionali colpiti dagli eventi;
+18. Al fine di consentire l'immediata applicazione delle disposizioni della legge, è opportuno che la stessa entri in vigore il giorno della sua pubblicazione sul Bollettino ufficiale della Regione Toscana;
+Approva la presente legge:
