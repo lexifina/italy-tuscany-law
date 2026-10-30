@@ -1,0 +1,4 @@
+CAPO II bis - Misure a sostegno dei lavoratori disoccupati
+Art. 6 bis - Istituzione del fondo regionale per le misure a sostegno dei lavoratori disoccupati
+1. Al fine di fronteggiare lo stato di crisi economica, è istituito per l'anno 2009 un fondo regionale per il finanziamento delle misure di sostegno al reddito di cui al presente capo, per un importo pari ad euro 5.000.000,00.
+2. Agli oneri di cui al comma 1 si fa fronte con le risorse stanziate nella UPB 612 "Lavoro - Spese correnti" del bilancio di previsione 2009.

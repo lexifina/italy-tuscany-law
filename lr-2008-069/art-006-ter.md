@@ -1,0 +1,12 @@
+Art. 6 ter - Interventi per il sostegno al reddito
+1. Per l'anno 2009, è riconosciuto un contributo una tantum pari ad euro 1.650,00 a titolo di sostegno al reddito, ai lavoratori dipendenti a tempo determinato o indeterminato ed ai titolari di contratti di collaborazione a progetto, di cui all'articolo 61 e seguenti del decreto legislativo 10 settembre 2003, n. 276 (Attuazione delle deleghe in materia di occupazione e mercato del lavoro, di cui alla legge 14 febbraio 2003, n. 30), che:
+a) risiedono in Toscana;
+b) sono stati già occupati presso unità produttive od operative di imprese localizzate in Toscana;
+c) risultano in stato di disoccupazione da almeno tre mesi;
+d) non beneficiano di ammortizzatori sociali;
+e) hanno sottoscritto il patto di servizio integrato, di cui all'articolo 14, comma 3, del regolamento emanato con decreto del Presidente della Giunta regionale 4 febbraio 2004, n. 7/R (Regolamento regionale di attuazione degli articoli 22 bis e 22 ter della legge regionale 26 luglio 2002 n. 32).
+2. Il contributo di cui al comma 1 è riconosciuto a coloro che non risultano beneficiari nell'anno 2009 di altri contributi pubblici erogati a titolo di sostegno al reddito in conseguenza della perdita del posto di lavoro;
+3. La Giunta regionale, con propria deliberazione da adottarsi entro quarantacinque giorni dall'entrata in vigore della presente legge, definisce:
+a) la durata minima del rapporto di lavoro la cui cessazione anticipata, per causa non imputabile al lavoratore, ha originato lo stato di disoccupazione;
+b) la soglia di reddito, riferito all'anno 2008 ed accertato secondo la normativa in materia di indicatore della situazione economica equivalente (ISEE), che dà diritto al contributo;
+c) le modalità operative di accesso al contributo.

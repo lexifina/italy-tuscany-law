@@ -1,0 +1,7 @@
+CAPO V sexies – Interventi finanziari straordinari a seguito dell'incidente ferroviario di Viareggio
+Art. 9 septies - Interventi finanziari straordinari a seguito dell'incidente ferroviario di Viareggio
+1. Al fine di favorire il ritorno alle normali condizioni di vita della popolazione e il superamento dell'emergenza conseguente l'incidente ferroviario occorso in data 29 giugno 2009 nel comune di Viareggio, la Giunta regionale, nel limite complessivo di euro 2 milioni, può:
+a) disporre gli interventi finanziari previsti dall'articolo 23, comma 2, della legge regionale 29 dicembre 2003, n. 67 (Ordinamento del sistema regionale della protezione civile e disciplina delle relative attività), anche in deroga ai limiti massimi di importo e alle tipologie di spesa di cui ai relativi regolamenti attuativi;
+b) disporre interventi finanziari straordinari per il ripristino dei beni distrutti o danneggiati di proprietà pubblica o privata.
+2. La Giunta regionale dispone gli interventi finanziari di cui al comma 1, con propria deliberazione, assumendo le opportune iniziative per il recupero delle somme erogate presso gli eventuali soggetti tenuti al relativo pagamento a titolo di responsabilità civile o di contratto di assicurazione, o, comunque, a qualsiasi altro titolo in base all'ordinamento vigente.
+3. All'onere di spesa di cui al comma 1, si fa fronte con le risorse stanziate sulla UPB 114 "Interventi derivanti da eventi calamitosi - Spese correnti" del bilancio di previsione 2009.
