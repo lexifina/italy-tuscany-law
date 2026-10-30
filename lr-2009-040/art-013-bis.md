@@ -1,0 +1,4 @@
+Art. 13 bis - Termine del procedimento e mancata presentazione di documentazione
+1. I termini per la conclusione del procedimento decorrono dall'inizio del procedimento d'ufficio, ovvero, se il procedimento è ad iniziativa di parte, dal ricevimento della domanda corredata dalla documentazione richiesta dalle disposizioni che regolano il procedimento stesso.
+2. In caso di mancanza della documentazione di cui al comma 1, l'amministrazione richiede in un'unica soluzione la documentazione mancante all'interessato entro dieci giorni dal ricevimento della domanda. L'avvio del procedimento è comunicato alla data di ricevimento della documentazione richiesta.
+3. Restano ferme le ipotesi in cui, ai sensi dell'ordinamento vigente, la mancata produzione dei documenti, contestualmente all'istanza, comporta l'inammissibilità o la decadenza dell'istanza medesima.

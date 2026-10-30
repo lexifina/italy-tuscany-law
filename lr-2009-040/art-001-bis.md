@@ -1,0 +1,3 @@
+Art. 1 bis - Sessione per la semplificazione
+1. Il Consiglio regionale si riunisce, entro il 30 giugno di ogni anno, in una sessione di lavori dedicata alla semplificazione, al fine di verificare lo stato della semplificazione normativa e amministrativa nell'ordinamento regionale e prevedere l'adozione di opportuni interventi per elevare il livello di qualità dell'azione normativa e amministrativa e dei processi decisionali nel loro complesso.
+2. Ai fini di cui al comma 1, la Giunta regionale presenta al Consiglio regionale una relazione sullo stato di efficienza dell'amministrazione regionale alla luce dei principi e degli obiettivi di cui all'articolo 1, comma 1.

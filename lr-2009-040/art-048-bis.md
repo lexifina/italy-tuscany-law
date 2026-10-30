@@ -1,0 +1,19 @@
+Capo IV bis - Controlli sulle imprese
+Art. 48 bis Agenda regionale dei controlli sulle imprese
+1. In conformità all'articolo 14 del decreto-legge 9 febbraio 2012, n. 5 (Disposizioni urgenti in materia di semplificazione e di sviluppo) convertito, con modificazioni, dalla legge 4 aprile 2012, n. 35, la Regione semplifica e razionalizza la disciplina dei controlli sulle imprese, al fine di:
+a) eliminare le attività di controllo non necessarie alla tutela dell'interesse pubblico perseguito;
+b) eliminare o ridurre le duplicazioni e le sovrapposizioni che intralciano l'esercizio dell'attività di impresa;
+c) agevolare la riutilizzazione da parte di una amministrazione pubblica dell'esito dei controlli documentali svolti da un'altra amministrazione pubblica.
+2. Per perseguire le finalità di cui al comma 1, la Regione istituisce l'Agenda regionale dei controlli sulle imprese, di seguito denominata Agenda.
+3. L'Agenda è costituita da un archivio informatizzato, implementato con le informazioni in possesso delle amministrazioni pubbliche che effettuano controlli in ambito regionale e da esse condiviso.
+4. L'Agenda raccoglie per ciascuna impresa, in particolare, le informazioni riguardanti:
+a) i dati identificativi dell'impresa;
+b) l'elenco dei controlli effettuati;
+c) l'indicazione dell'amministrazione e i dati dell'agente preposto al controllo;
+d) la data e la tipologia di controllo espletato;
+e) il procedimento amministrativo a cui è connesso;
+f) la scheda o il verbale di controllo e i relativi esiti;
+g) l'eventuale programmazione di visite cui sarà soggetta l'impresa.
+5. Ogni amministrazione è responsabile della correttezza delle operazioni di controllo eseguite e della corrispondenza fra i dati e i documenti posseduti e quelli inseriti nell'Agenda.
+6. Con regolamento regionale, da approvarsi entro sessanta giorni dall'entrata in vigore del presente articolo, è disciplinata l'organizzazione dell'Agenda, le modalità di implementazione, l'accreditamento delle pubbliche amministrazioni.
+7. Rimane ferma la disciplina relativa al registro unico dei controlli in agricoltura (RUC).

@@ -1,0 +1,4 @@
+Art. 14 ter Banca dati dei pareri regionali
+1. Al fine di favorire l'uniformità di interpretazione ed applicazione delle leggi regionali e la celerità dei relativi procedimenti è istituita la banca dati dei pareri regionali suddivisa in sezioni dedicate.
+2. I pareri sono inseriti nella banca dati dedicata pubblicata sul sito istituzionale della Regione Toscana.
+3. Con deliberazione della Giunta regionale, da adottarsi entro novanta giorni dall'entrata in vigore del presente articolo, sono stabilite le modalità di implementazione e funzionamento della banca dati.

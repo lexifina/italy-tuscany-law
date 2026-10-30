@@ -1,0 +1,9 @@
+Art. 34 quater - Conferenza di servizi
+1. La conferenza di servizi è convocata a cura del Presidente della Giunta regionale o secondo le diverse modalità stabilite dalla Giunta regionale ai sensi dell'articolo 34 ter, comma 1, lettera d), ed è finalizzata alla definizione del contenuto dell'accordo di programma di cui all'articolo 34 quinquies.
+2. Alla prima seduta della conferenza sono invitati i rappresentanti degli enti di cui è prevista la partecipazione all'accordo di programma che definiscono, ove i lavori della conferenza debbano proseguire in sedute successive, le modalità di partecipazione a queste ultime.
+3. Ove l'accordo di programma abbia ad oggetto la realizzazione di opere pubbliche o di pubblica utilità, la conferenza, tra l'altro:
+a) verifica la conformità urbanistica della relativa localizzazione e, in mancanza, definisce le iniziative da assumere in proposito da parte degli enti sottoscrittori dell'accordo;
+b) individua i tempi per la relativa progettazione, gli adempimenti istruttori necessari per l'approvazione del progetto e le modalità attraverso le quali i soggetti competenti procedono al loro svolgimento;
+c) verifica il fabbisogno finanziario e gli impegni che gli enti sottoscrittori intendono assumere con l'accordo di programma per la relativa copertura.
+4. Dei lavori della conferenza è redatto sintetico verbale complessivo che è allegato all'accordo di programma.
+5. Qualora sia necessario acquisire intese, nulla-osta, autorizzazioni o altri atti di assenso prima della sottoscrizione dell'accordo di programma, la Regione o il diverso ente competente procedono alla convocazione di una conferenza di servizi specificatamente finalizzata a tale scopo; il termine stabilito dalla Giunta regionale ai sensi dell'articolo 34 ter, comma 1, lettera c), è sospeso fino alla conclusione di quest'ultima conferenza di servizi.

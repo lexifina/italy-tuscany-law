@@ -1,0 +1,10 @@
+Art. 34 quinquies - Contenuto dell'accordo
+1. Il testo dell'accordo di programma è approvato dalla Giunta regionale con propria deliberazione.
+2. L'accordo di programma prevede:
+a) il programma di attuazione delle opere e degli interventi;
+b) i tempi di realizzazione anche in relazione alle varie fasi in cui si articola il programma;
+c) il piano finanziario e la ripartizione degli oneri;
+d) gli adempimenti dei firmatari;
+e) l'istituzione del collegio di vigilanza sull'attuazione dell'accordo;
+f) l'individuazione del funzionario responsabile dell'attuazione dell'accordo, scelto fra dirigenti regionali; le modalità del controllo ai fini dell'attuazione dello stesso, i provvedimenti sanzionatori da adottarsi in caso di inadempimento, inerzia o ritardo;
+g) l'eventuale ricorso a procedimenti di arbitrato con la specificazione delle modalità di composizione e di nomina del collegio arbitrale.

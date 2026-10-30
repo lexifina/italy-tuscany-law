@@ -1,0 +1,7 @@
+CAPO I bis - Carta dei servizi e delle funzioni
+Art. 20 bis - Carta dei servizi e delle funzioni
+1. La Regione promuove la definizione di adeguati livelli di qualità nell'erogazione dei servizi e la valorizzazione delle migliori pratiche nell'esercizio della funzione amministrativa.
+2. Per quanto non previsto dalla normativa statale e regionale in materia, la Giunta regionale si dota di una propria carta dei servizi, al fine di garantire gli standard di qualità dei servizi erogati dalla stessa o dai propri enti dipendenti.
+3. La Giunta regionale fissa altresì con proprio atto gli standard di qualità dei servizi da essa affidati a concessionari regionali.
+4. La Giunta regionale, sulla base di propri indirizzi, promuove inoltre l'adozione di carte di servizi nei confronti di ogni altro soggetto gestore di servizi pubblici in ambito regionale.
+5. Nel rispetto delle norme in materia di semplificazione, la Giunta regionale si dota di una carta delle funzioni per promuovere le migliori pratiche di correttezza, celerità e trasparenza nell'esercizio delle funzioni amministrative.

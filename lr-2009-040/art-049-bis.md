@@ -1,0 +1,4 @@
+Capo I bis Obbligo di acquisizione del documento unico di regolarità contributiva
+Art. 49 bis Obbligo di acquisizione del documento unico di regolarità contributiva
+1. La Regione acquisisce il documento unico di regolarità contributiva (DURC) prima del provvedimento di concessione e nelle fasi della liquidazione di ogni tipologia di contributi, benefici, sovvenzioni, di importo pari o superiore ad euro 5.000,00, effettuati con risorse regionali, a qualsiasi titolo e a favore di qualsiasi soggetto tenuto ad obblighi contributivi.
+2. L'obbligo di cui al comma 1 non si applica agli enti e ai soggetti pubblici compresi nella ricognizione effettuata dall'Istituto nazionale di statistica ai sensi dell'articolo 1, comma 3, della legge 31 dicembre 2009, n. 196 (Legge di contabilità e di finanza pubblica), salvo il caso in cui agiscano in qualità di operatore economico.

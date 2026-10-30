@@ -1,0 +1,13 @@
+Art. 34 octies - Vigilanza
+1. I soggetti che hanno sottoscritto l'accordo di programma ne sono vincolati e sono tenuti a compiere gli atti necessari ad applicarlo.
+2. La vigilanza sul rispetto degli impegni assunti con l'accordo di programma è affidata al collegio di vigilanza di cui all'articolo 34 quinquies, comma 2, lettera e) .
+3. Il collegio è composto dai rappresentanti dei soggetti firmatari, in numero comunque non superiore a nove, delibera a maggioranza dei componenti ed è presieduto dal Presidente della Giunta regionale. In caso di parità prevale il voto del Presidente della Giunta regionale.
+4. Il Presidente della Giunta regionale può delegare l'esercizio delle funzioni di cui al comma 3, a un assessore e, in caso di impedimento di questo, al dirigente regionale competente per materia.
+5. L'accordo di programma stabilisce l'eventuale ripartizione tra i soggetti sottoscrittori degli oneri relativi al funzionamento del collegio.
+6. Il collegio di vigilanza:
+a) verifica le attività di esecuzione dell'accordo, anche chiedendo informazioni e documenti ai firmatari e procedendo a ispezioni;
+b) attiva i poteri sostitutivi nei casi di inerzia o di ritardo in ordine agli adempimenti concordati.
+7. Il funzionario responsabile dell'attuazione dell'accordo, di cui all'articolo 34 quinquies, comma 2, lettera f), che svolge anche le funzioni di segretario del collegio di vigilanza, mantiene gli opportuni contatti con gli uffici e le strutture tecniche dei soggetti pubblici partecipanti all'accordo, ponendo in essere ogni attività utile ai fini del coordinamento delle azioni, segnala al collegio eventuali difficoltà o problemi inerenti l'attuazione dell'accordo, riferisce periodicamente al collegio sullo stato di attuazione dello stesso.
+8. Ai fini di cui al comma 6, lettera b), il collegio accerta l'inerzia o il ritardo, anche avvalendosi del responsabile dell'attuazione dell'accordo, e diffida il soggetto inadempiente ad adempiere entro un termine non superiore a trenta giorni.
+9. Decorso inutilmente il termine di cui al comma 8, il collegio richiede al Presidente della Giunta regionale la nomina di un commissario ad acta per il compimento degli atti o delle attività per le quali si è verificata l'inerzia o il ritardo. Al commissario ad acta si applica la normativa regionale in materia di commissari.
+10. Qualora l'accordo di programma comporti impegni finanziari a carico di un'amministrazione partecipante, gli organi competenti dell'amministrazione stessa assumono le relative determinazioni. In mancanza, il collegio di vigilanza provvede in via sostitutiva, con le modalità di cui al comma 8.

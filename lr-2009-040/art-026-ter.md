@@ -1,0 +1,8 @@
+Art. 26 ter - Formazione della posizione unica regionale
+1. Ai fini della definizione della posizione unica regionale, entro la data prevista per lo svolgimento della prima riunione della conferenza di servizi simultanea, il RUR chiede, tempestivamente, ai responsabili delle strutture regionali e delle amministrazioni riconducibili alla Regione, il rilascio degli atti di assenso oggetto della conferenza.
+2. Il RUR acquisisce ordinariamente gli atti di assenso in modalità asincrona, assegnando un termine non inferiore a dieci giorni per il rilascio degli stessi.
+3. Nei casi di particolare complessità delle determinazioni da assumere o di mancata acquisizione degli atti ai sensi del comma 2, il RUR convoca una conferenza interna in modalità simultanea, definendo tempi e modalità di acquisizione degli atti.
+4. Decorsi inutilmente i termini assegnati dal RUR alle strutture partecipanti alla conferenza interna, gli atti di assenso si intendono acquisiti senza condizioni.
+5. I responsabili delle strutture convocate possono delegare a partecipare alla conferenza interna i dipendenti di cui all'articolo 26, comma 3.
+6. A conclusione dei lavori della conferenza interna il RUR redige un verbale sottoscritto da tutti i partecipanti.
+7. A seguito dell'acquisizione degli atti di assenso con le modalità di cui ai commi 2 o 3, il RUR esprime, con proprio atto, il parere unico regionale in cui è formalizzata la posizione univoca e vincolante della Regione ai fini della conferenza di servizi.
