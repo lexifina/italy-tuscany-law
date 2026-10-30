@@ -1,0 +1,24 @@
+Legge regionale
+29 novembre 2023
+44
+Disposizioni in materia di impianti crematori. Modifiche alla l.r. 29/2004.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, terzo comma, della Costituzione;
+Visto l'articolo 4, comma 1, lettera c), dello Statuto;
+Vista la legge 30 marzo 2001, n. 130 (Disposizioni in materia di cremazione e dispersione delle ceneri);
+Visto il regolamento emanato con decreto del Presidente della Repubblica 10 settembre 1990, n. 285 (Approvazione del regolamento di polizia mortuaria);
+Vista la legge regionale 31 maggio 2004, n. 29 (Affidamento, conservazione e dispersione delle ceneri derivanti dalla cremazione dei defunti);
+Vista la nota prot. n. 8015 del 30 giugno 2023 con la quale il Consiglio delle autonomie locali ha comunicato la decisione di non esprimere parere in merito alla proposta di legge n. 204 (Affidamento, conservazione e dispersione delle ceneri derivanti dalla cremazione dei defunti. Modifica alla l.r. 29/2004);
+Visto il parere favorevole del Consiglio delle autonomie locali espresso in data 12 settembre 2023 sulla proposta di legge n. 207 (Affidamento, conservazione e dispersione delle ceneri derivanti dalla cremazione dei defunti. Modifica alla l.r. 29/2004);
+Considerato che la Terza commissione consiliare, ai sensi dell'articolo 43 del regolamento interno del Consiglio regionale 24 novembre 2015, n. 27 (Regolamento interno dell'Assemblea legislativa regionale), ha ritenuto di procedere all'elaborazione di un testo unificato delle proposte di legge n. 204 e n. 207;
+Considerato quanto segue:
+1. L'articolo 6 della l. 130/2001 prevede che le regioni debbano elaborare piani regionali di coordinamento per la realizzazione dei crematori da parte dei comuni, anche in associazione tra essi, tenendo conto della popolazione residente, dell'indice di mortalità e dei dati statistici sulla scelta crematoria da parte dei cittadini di ciascun territorio comunale, prevedendo, di norma, la realizzazione di almeno un crematorio per regione. Il predetto articolo 6 stabilisce anche che la gestione dei crematori spetti ai comuni;
+2. L'articolo 6 della l.r. 29/2004, in attuazione dell'articolo 6, comma 1, della l. 130/2001, prevede che il piano regionale di coordinamento definisca, sulla base della popolazione residente, del tasso di mortalità e dei dati statistici relativi alla scelta crematoria da parte dei cittadini di ciascun territorio comunale, le linee guida per la realizzazione dei crematori da parte dei comuni, anche in forma associata. Inoltre, stabilisce che il piano regionale di coordinamento è approvato dal Consiglio regionale, su proposta della Giunta regionale, ai sensi della normativa vigente in materia di programmazione regionale;
+3. L'articolo 9 bis della l.r. 29/2004 prevede che entro dodici mesi dalla data di entrata in vigore della legge regionale 12 novembre 2013, n. 66 (Affidamento, conservazione e dispersione delle ceneri derivanti dalla cremazione dei defunti. Modifiche alla l.r. 29/2004), la Giunta regionale presenta al Consiglio regionale, per l'approvazione, il primo piano regionale di coordinamento di cui all'articolo 6 della stessa l.r. 29/2004;
+4. In assenza di un piano regionale di coordinamento si è comunque delineata la distribuzione sul territorio degli impianti crematori, per cui in Toscana sono attivi dieci impianti di cremazione per un totale di tredici linee di cremazione operative (Arezzo, Bagno a Ripoli, Carrara, Firenze, Grosseto, Livorno, Massa, Pisa, Pistoia, Siena);
+5. Un'indagine effettuata nel corso dell'anno 2020 dalle competenti strutture regionali in cui sono state raccolte informazioni dettagliate sul numero di cremazioni effettuate, giornalmente o settimanalmente, da ciascun impianto crematorio della Toscana, ha fatto emergere che gli impianti non solo erano adeguati alla richiesta toscana, ma alcuni hanno perfino contribuito alla cremazione di salme in stato di giacenza provenienti da altre regioni;
+6. Con le mozioni 12 giugno 2019 n. 1692 e 21 febbraio 2023 n. 1129, il Consiglio regionale ha sollecitato la Giunta regionale a procedere all'approvazione del piano regionale di coordinamento e, contemporaneamente, ad assumere un'iniziativa legislativa volta a sospendere gli iter autorizzativi dei nuovi impianti;
+7. Sulla base dell'indagine sopracitata e anche in ottemperanza alle sollecitazioni dei predetti atti di indirizzo, si ritiene opportuno prevedere in via transitoria, nelle more dell'approvazione del piano regionale di coordinamento, che per un periodo di dodici mesi dall'entrata in vigore della presente legge non possano essere realizzati nuovi impianti crematori, ad eccezione di quelli i cui progetti di costruzione siano già stati approvati dai comuni ai sensi dell'articolo 78 del d.p.r. 285/1990;
+Approva la presente legge
