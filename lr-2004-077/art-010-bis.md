@@ -1,3 +1,3 @@
-Art. 10bis - Donazioni ed altre liberalità a favore del Consiglio regionale
+Art. 10 bis - Donazioni ed altre liberalità a favore del Consiglio regionale
 1. Le donazioni specificamente effettuate a favore del Consiglio regionale sono accettate, con le modalità dell'articolo 10, previa deliberazione favorevole dell'Ufficio di presidenza. Nel caso dei beni librari la deliberazione dell'Ufficio di presidenza è assunta previa istruttoria della struttura responsabile della biblioteca del Consiglio.
 2. I beni oggetto delle donazioni, comprese quelle di beni mobili di modico valore, e delle cessioni a titolo gratuito specificamente effettuate a favore del Consiglio regionale sono acquisiti, con il perfezionamento dell'atto di liberalità, al patrimonio in uso allo stesso Consiglio e conseguentemente inventariati.
