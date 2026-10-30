@@ -1,0 +1,1 @@
+Articolo unico Il confine fra i Comuni di Dicomano e di Londa, in Provincia di Firenze, è rettificato secondo la linea risultante dalla cartografia e dalla relazione descrittiva, annesse alla presente legge.
