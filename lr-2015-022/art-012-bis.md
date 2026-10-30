@@ -1,0 +1,5 @@
+Art. 12 bis Spese di funzionamento della Regione a seguito del riordino
+1. L'ammontare complessivo della spesa di funzionamento della Regione, fissato annualmente con la deliberazione di cui all'articolo 1, comma 1, della l.r. 65/2010, e all'articolo 16 della l.r.. 86/2014, e nel rispetto della normativa in essi richiamata, è determinato, a decorrere dal 2016, tenuto conto altresì dell'incremento di unità di personale e di autovetture conseguente al trasferimento alla Regione delle funzioni di cui al presente capo.
+2. Ai fini di cui al comma 1, la percentuale di riduzione delle spese di funzionamento è calcolata:
+a) per la formazione del personale e per le missioni, sulla spesa sostenuta dalla Regione per tali voci nel 2009, incrementata in misura proporzionale alle unità di personale trasferite dalle province, dalla città metropolitana e dalle unioni di comuni a seguito del riordino;
+b) per le autovetture, sulla spesa sostenuta dalla Regione per tale voce nel 2011 incrementata in misura proporzionale al numero di autovetture acquisite dalle province, dalla Città metropolitana e dalle unioni di comuni a seguito del riordino.
