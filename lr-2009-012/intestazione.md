@@ -1,0 +1,19 @@
+Legge regionale
+27 marzo 2009
+12
+Modifiche alla legge regionale 24 dicembre 2008, n. 69 (Legge finanziaria per l'anno 2009).
+REGIONE TOSCANA
+PREAMBOLO
+Visto l'articolo 117, terzo comma, della Costituzione;
+Visto l'articolo 4, comma 1, lettere a) e g), dello Statuto;
+Vista la legge regionale 6 agosto 2001, n. 36 (Ordinamento contabile della Regione Toscana), ed in particolare l'articolo 13, comma 1, lettera c), secondo cui contestualmente alla legge di bilancio la Giunta regionale può presentare all'approvazione del Consiglio regionale un progetto di legge finanziaria al fine di apportare qualsiasi modifica alla legislazione regionale che risulti necessaria all'adozione del bilancio annuale e del bilancio pluriennale ;
+Vista la legge regionale 24 dicembre 2008, n. 69 (Legge finanziaria per l'anno 2009);
+considerato quanto segue:
+1. il trasferimento della crisi dei mercati finanziari all'economia reale sta determinando consistenti riduzioni di personale in numerosi settori di impresa, che si trovano in forti difficoltà con rischio di chiusura;
+2. si riscontra conseguentemente l'esigenza di un intervento legislativo che introduca per l'anno 2009 misure straordinarie di sostegno al reddito dirette ai lavoratori disoccupati che non risultano beneficiari degli ammortizzatori sociali, ai lavoratori precari e con contratti atipici, a complemento di quelle varate dal legislatore nazionale;
+3. appare inoltre necessario sostenere finanziariamente i lavoratori che, a causa della perdita anche momentanea del lavoro, pur se sostenuti da ammortizzatori sociali, hanno difficoltà ad adempiere correttamente al pagamento delle rate di ammortamento del mutuo ipotecario per l'acquisto della prima casa, prevenendo così l'instaurarsi di azioni esecutive che porterebbero alla perdita della casa e tutelando il risparmio delle famiglie;
+4. gli enti locali associativi, che svolgono funzioni e servizi di competenza comunale, sono stati interessati nell'anno 2008 da un processo di forte cambiamento; le comunità montane sono state riordinate ed hanno subito, successivamente, ulteriori consistenti riduzioni di trasferimenti erariali con effetto nell'anno 2009, tali da rischiare di compromettere il raggiungimento degli obiettivi di diffusione delle gestioni associate. Si rende perciò necessario assicurare nell'anno 2009 risorse certe, al momento individuabili nelle risorse previste per l'attuazione della legge regionale 16 agosto 2001, n. 40 (Disposizioni in materia di riordino territoriale e di incentivazione delle forme associative di Comuni), in modo da evitare la cessazione o la crisi delle gestioni associate in corso e la conseguente negativa ripercussione sullo svolgimento dei servizi e sui bilanci dei comuni. Allo stesso modo occorre provvedere per assicurare certezza di risorse per le unioni di comuni recentemente costituite, in modo autonomo o per effetto della soppressione di comunità montane;
+5. i piccoli comuni si trovano ad affrontare nell'anno 2009 gravi difficoltà finanziarie, che possono rendere particolarmente complessa la predisposizione dei bilanci preventivi con il rischio di compromettere l'erogazione dei servizi resi ai cittadini. È pertanto opportuno dotare i piccoli comuni di una anticipazione di risorse finanziarie da restituire entro tre anni, con riserva di intervento in favore dei comuni con popolazione inferiore ai 3.000 abitanti, e con priorità per i comuni con maggiore indice di disagio;
+6. a tali fini occorre integrare la l.r. 69/2008 tenuto conto che le presenti disposizioni recano contenuti propri della legge finanziaria, come definiti dall'articolo 13 della l.r. 36/2001;
+7. occorre infine procedere alla rimodulazione ed integrazione dell'allegato A della l.r. 69/2008, (Prospetto di rimodulazione previsioni finanziarie di piani e programmi), ai sensi dell'articolo 15, comma 3, della l.r. 36/2001;
+si approva la presente legge
