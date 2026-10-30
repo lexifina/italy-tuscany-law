@@ -13,5 +13,5 @@ f) i sindaci dei Comuni di Firenze, Pisa e Siena, o loro delegati.
 a) sulla delibera della Giunta regionale di cui all'articolo 9, comma 3;
 b) sul piano degli investimenti dell'Azienda regionale per il diritto allo studio universitario;
 c) sulle proposte di sviluppo universitario in Toscana per gli aspetti inerenti al diritto allo studio universitario;
-d) sul piano delle attività, sul bilancio previsionale e di esercizio dell'Azienda regionale per il diritto allo studio universitario.
+d) sul piano delle attività, sul budget e sul bilancio e di esercizio dell'Azienda regionale per il diritto allo studio universitario.
 5. La Conferenza si riunisce almeno due volte l'anno: le sedute della Conferenza sono valide con la presenza della maggioranza assoluta dei componentieffettivamente nominati.

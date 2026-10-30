@@ -5,7 +5,7 @@ Art. 10 septies - Consiglio regionale degli studenti
 4. Il Presidente del Consiglio regionale degli studenti dura in carica un anno.
 5. Il Consiglio regionale degli studenti ha i seguenti compiti:
 a) esprime pareri e formula proposte in merito alla delibera della Giunta regionale di cui all'articolo 9, comma 3;
-b) esprime pareri e formula proposte sul piano degli interventi, sul bilancio preventivo e di esercizio dell'Azienda regionale per il diritto allo studio universitario sui criteri di erogazione dei servizi in materia di diritto allo studio universitario.
+b) esprime pareri e formula proposte sul piano degli interventi, sul budget e sul bilancio e di esercizio dell'Azienda regionale per il diritto allo studio universitario sui criteri di erogazione dei servizi in materia di diritto allo studio universitario.
 c) acquisisce dall'Azienda regionale dati e informazioni utili per la formulazione di valutazioni e proposte migliorative della qualità dei servizi offerti;
 d) indica i rappresentanti degli studenti nelle Commissioni istituite dall'Azienda.
 6. I membri del Consiglio regionale degli studenti durano in carica due anni, decadono qualora venga meno il requisito dell'appartenenza all'Università e possono essere rinnovati una sola volta.

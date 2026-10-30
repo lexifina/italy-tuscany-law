@@ -5,10 +5,10 @@ a) i centri per l'impiego;
 b) gli enti bilaterali;
 c) le associazioni sindacali dei datori di lavoro e dei lavoratori;
 d) le università e le istituzioni dell'alta formazione artistica, musicale e coreutica abilitate al rilascio di titoli accademici aventi valore legale in Italia;
-e) gli istituti tecnici superiori (ITS);
-f) le associazioni professionali iscritte nell'elenco di cui all'articolo 2, comma 7, della legge 14 gennaio 2013, n. 4 (Disposizioni in materia di professioni non organizzate) che hanno ottenuto il riconoscimento della personalità giuridica, ai sensi della normativa statale e regionale;
-g) l'Agenzia nazionale per le politiche attive del lavoro (ANPAL);
-h) gli enti in house del Ministero del lavoro e delle politiche sociali e dell'ANPAL e di altri ministeri per programmi di rilevanza nazionali;
+e) gli istituti tecnologici superiori (ITS Academy);
+f) le associazioni professionali iscritte nell'elenco di cui all' articolo 2, comma 7, della legge 14 gennaio 2013, n. 4(Disposizioni in materia di professioni non organizzate) che hanno ottenuto il riconoscimento della personalità giuridica, ai sensi della normativa statale e regionale;
+g) il Ministero del lavoro e delle politiche sociali;
+h) gli enti in house del Ministero del lavoro e delle politiche sociali e di altri ministeri per programmi di rilevanza nazionali;
 i) le cooperative iscritte all'albo regionale delle cooperative sociali e dei consorzi;
 j) i soggetti iscritti nell'elenco regionale dei soggetti accreditati per lo svolgimento di servizi al lavoro ai sensi dell'articolo 20 ter;
 k) le associazioni iscritte nel registro regionale delle organizzazioni di volontariato.

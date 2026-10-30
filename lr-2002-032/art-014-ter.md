@@ -1,5 +1,10 @@
 Art. 14 ter Individuazione, validazione e certificazione delle competenze
-1. I servizi di individuazione e validazione delle competenze di cui all'articolo 13 bis, comma 1, lettera f), sono realizzati dai centri per l'impiego, con personale in possesso dei requisiti definiti dal regolamento di cui all'articolo 32.
+1. I servizi di individuazione e validazione delle competenze di cui all'articolo 13 bis, comma 1, lettera f), sono realizzati:
+a) dai centri per l'impiego;
+b) dai soggetti del sistema della formazione professionale di cui all'articolo 16 bis;
+c) dai soggetti accreditati a svolgere servizi al lavoro di cui all'articolo 20 ter;
+d) dai soggetti promotori dei tirocini non curriculari di cui all'articolo 17 ter, comma 2, relativamente alle competenze acquisite dai tirocinanti al termine del tirocinio.
+1 bis. I soggetti di cui al comma 1, lettere b), c) e d), possono svolgere i servizi di individuazione e validazione con operatori in possesso dei requisiti definiti dal regolamento di cui all'articolo 32, previa verifica degli standard definiti con deliberazione della Giunta regionale, che disciplina anche la procedura di accertamento.
 2. Per i servizi di validazione, la Giunta regionale, con propria deliberazione, può stabilire che l'accesso da parte dei soggetti interessati sia subordinato al pagamento di un contributo entro il limite massimo di euro 100,00.
 3. La certificazione delle competenze avviene:
 a) da parte dei soggetti del sistema della formazione professionale di cui all'articolo 16 bis, in esito ad un percorso formativo di cui all'articolo 17, commi 1 e 2;

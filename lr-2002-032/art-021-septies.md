@@ -11,5 +11,5 @@ Art. 21 septies - Direttore
 10. Il contratto del direttore può essere risolto anticipatamente con decreto del Presidente della Giunta regionale, che dispone la revoca della nomina, oltre che per i motivi previsti dall'articolo 15, comma 4, della l.r. 5/2008, per i seguenti motivi:
 a) grave perdita del conto economico;
 b) mancato conseguimento dei risultati previsti dal programma di attività per cause imputabili alla responsabilità dello stesso direttore.
-c) valutazione negativa, effettuata ai sensi del comma 9, sul conseguimento degli obiettivi di cui al piano della qualità della prestazione organizzativa, di cui all'articolo 21 novies 1;
-d) mancata adozione del bilancio di previsione o del bilancio di esercizio oppure adozione degli stessi oltre trenta giorni rispetto ai termini previsti all'articolo 21 duodecies, commi 3 e 6, per cause imputabili alla responsabilità dello stesso direttore.
+c) valutazione negativa, effettuata ai sensi del comma 9, sul conseguimento degli obiettivi definiti nella programmazione della prestazione organizzativa, di cui all'articolo 21 novies 1;
+d) mancata adozione del budget o del bilancio di esercizio oppure adozione degli stessi oltre trenta giorni rispetto ai termini previsti all'articolo 21 duodecies, commi 3 e 6, per cause imputabili alla responsabilità dello stesso direttore.
