@@ -1,0 +1,4 @@
+Art. 26 bis - Orario di apertura dei dispensari stagionali, delle proiezioni e delle farmacie di cui all'articolo 17 bis
+1. Le farmacie di cui all' articolo 17 bis adottano orari funzionali ai tempi di servizio della struttura nella quale sono inserite.
+2. Il comune può autorizzare le proiezioni ad effettuare un orario diverso rispetto a quello previsto dal comma 1 dell'articolo 26.
+3. Le farmacie cui sono affidate le proiezioni e i dispensari stagionali possono essere autorizzate ad effettuare un orario ridotto rispetto a quello previsto dall'articolo 26, commi 1 e 2, in misura corrispondente al periodo di apertura della proiezione o del dispensario.
