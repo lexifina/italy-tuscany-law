@@ -1,0 +1,26 @@
+Legge regionale
+2 dicembre 2024
+54
+Proroga dell'ufficio comune per l'esercizio in via transitoria delle funzioni delle province e della Città metropolitana in materia di bonifica dei siti inquinati. Interventi di manutenzione e modifiche alla l.r. 25/1998.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, comma secondo, lettera s), comma terzo e comma quarto, della Costituzione;
+Visto l'articolo 4, comma 1, lettera l), dello Statuto;
+Visto il decreto legislativo 3 aprile 2006, n. 152 (Norme in materia ambientale);
+Vista la legge 7 aprile 2014, n. 56 (Disposizioni sulle città metropolitane, sulle province, sulle unioni e fusioni di comuni);
+Vista la legge regionale 18 maggio 1998, n. 25 (Norme per la gestione dei rifiuti e la bonifica dei siti inquinati);
+Vista la legge regionale 3 marzo 2015, n. 22 (Riordino delle funzioni provinciali e attuazione della legge 7 aprile 2014, n. 56 "Disposizioni sulle città metropolitane, sulle province, sulle unioni e fusioni di comuni". Modifiche alle leggi regionali 32/2002, 67/2003, 41/2005, 68/2011, 65/2014);
+Vista la legge regionale 31 luglio 2023, n. 31 (Disciplina delle funzioni delle province e della Città metropolitana di Firenze in materia ambientale. Costituzione, in via transitoria, di ufficio comune per l'esercizio associato delle funzioni provinciali e della Città metropolitana di Firenze in materia di bonifica dei siti inquinati. Modifiche alla l.r. 25/1998, alla l.r. 30/2009 e alla l.r. 22/2015);
+Vista la legge regionale 2 agosto 2024, n. 35 (Conferimento ai comuni delle funzioni in materia di bonifica di siti contaminati e disciplina del procedimento per la bonifica dei siti interessati da inquinamento diffuso. Modifiche alla l.r. 25/1998);
+Visto il parere favorevole espresso dal Consiglio delle autonomie locali nella seduta dell'11 novembre 2024;
+Considerato quanto segue:
+1. È necessario prorogare di due anni il periodo transitorio con riferimento al quale è prevista la possibilità che le province e la Città metropolitana di Firenze si avvalgano dell'ufficio comune per l'esercizio delle funzioni in materia di bonifica dei siti inquinati;
+2. L'ufficio comune per l'esercizio associato delle funzioni in materia di bonifica dei siti inquinati è stato istituito, in via transitoria, dalla l.r. 31/2023, mediante la quale sono state riattribuite alle province e alla Città metropolitana di Firenze le funzioni in materia di bonifica dei siti inquinati ad esse attribuite dal titolo V, parte IV del d.lgs.152/2006 e che la Regione Toscana aveva trasferito alla propria competenza mediante leggi regionali, in particolare con la l.r. 22/2015, più volte oggetto di modifica, attuative della l. 56/2014;
+3. La riattribuzione è stata effettuata in ottemperanza alle sentenze della Corte costituzionale per le quali le funzioni in materia ambientale disciplinate dal d.lgs. 152/2006 non possono essere sottratte agli enti individuati dallo Stato, titolare della potestà legislativa in via esclusiva ai sensi dell'articolo 117, comma secondo, lettera s), della Costituzione;
+4. Le province e la Città metropolitana di Firenze a cui sono state riattribuite le funzioni amministrative in materia di bonifica dei siti inquinati in forza della recente l.r. 31/2023, stanno ancora procedendo alla riorganizzazione delle proprie strutture, al fine di poter esercitare tali funzioni, in ottemperanza a quanto acclarato dalla citata consolidata giurisprudenza della Corte costituzionale;
+5. In ragione della riorganizzazione ancora in corso, le province e la Città metropolitana di Firenze hanno fatto richiesta, con nota dell'Unione regionale delle province toscane (UPI Toscana) del 14 ottobre 2024, di poter proseguire l'esercizio delle funzioni mediante l'ufficio comune, istituito in via transitoria mediante la l.r. 31/2023, oltre il termine del 31 dicembre 2024, originariamente stabilito dagli articoli 28 quater e 28 quinquies della l.r. 25/1998;
+6. Essendo indispensabile ancora un lasso di tempo adeguato per la riorganizzazione delle province e della Città metropolitana di Firenze e riconosciuto l'interesse regionale affinché le funzioni provinciali in materia di bonifica dei siti inquinati siano esercitate al meglio, posta la loro rilevanza, in applicazione del principio del buon andamento dell'attività amministrativa, ai sensi dell'articolo 97 della Costituzione, è importante prorogare, per una sola volta, il periodo transitorio disciplinato dall'articolo 28 quater della l.r. 25/1998, per l'esercizio associato di tali funzioni attraverso l'ufficio comune;
+7. È necessario, in adempimento dell'impegno sottoscritto dal Presidente della Giunta regionale, in riscontro alla nota dell'ufficio legislativo del Ministero dell'ambiente e della sicurezza energetica riferita alla l.r. 35/2024, intervenire sugli articoli 13 e 13 bis della l.r. 25/1998, come modificati dalla l.r. 35/2024, per inserire il richiamo espresso nella sezione a) della banca dati dei siti interessati al processo di bonifica, chiarendo, in tal modo, le citate disposizioni;
+8. Al fine di garantire il funzionamento dell'ufficio comune senza soluzione di continuità è necessario prevedere l'entrata in vigore della presente legge il giorno successivo alla data di pubblicazione sul Bollettino ufficiale della Regione Toscana;
+Approva la presente legge
