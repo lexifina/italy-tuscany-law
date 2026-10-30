@@ -1,0 +1,7 @@
+Art. 36 bis Consultazioni per via telematica
+1. La Regione, al fine di valorizzare l'apporto dei toscani nel mondo, intesi come singoli o nelle associazioni di cui fanno parte, e di istituire un canale di comunicazione sui temi che li riguardano, attiva modalità telematiche di consultazione, tramite piattaforma online.
+2. La consultazione in modalità telematica dei toscani nel mondo è attivata con le seguenti finalità:
+a) consentire la partecipazione alla definizione delle norme che riguardano i cittadini toscani nel mondo e le loro famiglie;
+b) effettuare proposte in ordine agli interventi che coinvolgono le associazioni dei toscani nel mondo;
+c) garantire interazione e mantenimento del dialogo con organi istituzionali della Regione e tra le stesse associazioni.
+3. Le modalità telematiche della consultazione sono disciplinate con atto del dirigente competente.
