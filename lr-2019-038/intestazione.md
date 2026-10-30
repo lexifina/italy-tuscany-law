@@ -1,0 +1,25 @@
+Legge regionale
+28 giugno 2019
+38
+Disposizioni urgenti per il rafforzamento dei servizi e delle misure di politica attiva del lavoro per la sostituzione di personale collocato in quiescenza, del direttore generale e dei direttori. Modifiche alla l.r. 1/2009.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 117, comma quarto, della Costituzione;
+Visto il decreto legislativo 30 marzo 2001, n. 165 (Norme generali sull'ordinamento del lavoro alle dipendenze delle amministrazioni pubbliche);
+Vista la legge 30 dicembre 2018, n. 145 (Bilancio di previsione dello Stato per l'anno finanziario 2019 e bilancio pluriennale per il triennio 2019-2021);
+Visto il decreto-legge 28 gennaio 2019, n. 4 (Disposizioni urgenti in materia di reddito di cittadinanza e di pensioni) convertito, con modificazioni, dalla legge 28 marzo 2019, n. 26;
+Vista la legge regionale 8 gennaio 2009, n. 1 (Testo unico in materia di organizzazione e ordinamento del personale);
+Vista la legge regionale 26 luglio 2002, n. 32 (Testo unico della normativa della Regione Toscana in materia di educazione, istruzione, orientamento, formazione professionale e lavoro);
+Vista la legge regionale 8 giugno 2018, n. 28 (Agenzia regionale toscana per l'impiego "ARTI". Modifiche alla l.r. 32/2002. Disposizioni di riordino del mercato del lavoro);
+Considerato quanto segue:
+1. L'Agenzia regionale toscana per l'impiego (ARTI), ai sensi della l.r. 32/2002, è titolare della funzione di gestione della rete regionale dei centri per l'impiego, nonché dei servizi erogati e delle misure di politica attiva, ed è destinata a svolgere il ruolo di organismo intermedio per i piani operativi nazionali: programma operativo complementare "Sistemi per le politiche attive per l'occupazione" (POC SPAO) 2014 – 2020 e piano operativo nazionale (PON) "Inclusione" 2014 – 2020;
+2. Ai fini delle procedure per le assunzioni di cui al punto 1, nell'attuale fase di potenziamento dei servizi in materia di politiche attive del lavoro, la Regione si pone l'obiettivo di valorizzare al massimo e tutelare le professionalità che, a diverso titolo e con molteplici forme contrattuali, operano all'interno dei centri per l'impiego della Toscana, così come indicato anche dalla risoluzione del Consiglio regionale 29 maggio 2019, n. 248 collegata alla comunicazione della Giunta regionale n. 39 (In merito alle modalità di reclutamento di personale a tempo determinato e indeterminato di ARTI per il rafforzamento dei servizi regionali dei Centri per l'impiego);
+3. Al fine di consentire il rafforzamento dei centri per l'impiego, in armonia con quanto previsto dall'articolo 1, comma 258, della l. 145/2018, e dall'articolo 12, comma 3 bis, del d.l. 4/2019, convertito dalla l. 26/2019, in considerazione del potenziamento delle funzioni in materia di orientamento al lavoro attribuite ai centri per l'impiego, si dispone un piano triennale di reclutamento di personale, a tempo indeterminato e determinato, da parte dell'ARTI, da adibire alle individuate funzioni di politiche attive del lavoro, assunzioni che si aggiungono a quelle consentite a legislazione vigente;
+4. Il reclutamento del personale a tempo indeterminato da parte dell'ARTI ai sensi dell'articolo 1, comma 258, della l. 145/2018 e dall'articolo 12, comma 3 bis, del d.l. 4/2019 convertito dalla l. 26/2019, viene finanziato entro i limiti delle risorse previste dalla medesima disposizione, e solo a seguito della effettiva ripartizione delle suddette risorse tra tutte le regioni interessate ad opera del decreto del Ministero del lavoro e delle politiche sociali, individuato nella sopracitata norma nazionale, mentre il reclutamento di personale da effettuarsi a legislazione vigente trova già nel bilancio dell'ARTI specifico finanziamento;
+5. Il reclutamento del personale a tempo determinato da parte dell'ARTI, per il triennio 2019 – 2021, trova la propria fonte di finanziamento nelle risorse individuate dal PON "Inclusione" 2014 –2020 e dal POC SPAO 2014 – 2020, e sarà effettuato solo a seguito dell' avvenuto trasferimento delle suddette risorse;
+6. La presente legge non comporta nuovi o maggiori oneri a carico del bilancio regionale;
+7. Al fine di consentire l'efficace espletamento delle procedure di reclutamento del personale, in un'ottica di economicità e celerità delle medesime, è stabilita, per l'ARTI, come per la Regione Toscana, gli enti dipendenti e gli enti ed aziende del servizio sanitario regionale, la possibilità dello scorrimento delle graduatorie approvate a far data dal 1° gennaio 2019, in deroga a quanto previsto dall'articolo 1, comma 361, della 1. 145/2018;
+8. A fronte di particolari contingenze ed esigenze organizzative, risulta opportuno garantire una maggiore flessibilità temporale dell'incarico di cui all'articolo 16, comma 2, della l.r. 1/2009 attribuito in caso di vacanza dell'incarico di direttore generale o direttore;
+9. Al fine di consentire la rapida attivazione degli interventi previsti dalla presente legge, è necessario disporre la sua entrata in vigore il giorno della pubblicazione sul Bollettino ufficiale della Regione Toscana.
+Approva la presente legge
