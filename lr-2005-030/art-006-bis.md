@@ -1,0 +1,3 @@
+Art. 6 bis Elenchi degli atti che dichiarano la pubblica utilità
+1. L'ufficio regionale per le espropriazioni cura la tenuta e l'aggiornamento degli elenchi degli atti da cui deriva la dichiarazione di pubblica utilità ovvero con cui è disposta l'espropriazione, distinti in relazione agli enti che li hanno adottati, ricevendo altresì le comunicazioni relative alle procedure espropriative di cui all'articolo 14, comma 3, del d.p.r. 327/2001.
+2. Con deliberazione della Giunta regionale sono definite le modalità e gli adempimenti relativi alla tenuta degli elenchi di cui al comma 1 e, nell'ipotesi di cui all'articolo 6, comma 1 bis, è individuato l'ufficio regionale competente agli adempimenti di cui al comma 1.
