@@ -1,0 +1,6 @@
+Art. 57 bis Interventi ed opere strategici sovrambito. Coordinamento delle gestioni esistenti
+1. Nelle more dell'affidamento al gestore unico di cui all'articolo 18, l'autorità idrica assicura il coordinamento delle gestioni esistenti mediante la stipula, con le società di gestione del servizio idrico integrato operanti in Toscana, di apposito accordo quadro per la definizione delle modalità organizzative di realizzazione degli interventi, opere ed infrastrutture, individuati nel documento operativo regionale di cui all'articolo 25, comma 2, che interessano il territorio di competenza di più gestori o che comunque sono poste al servizio di più gestioni.
+2. L'accordo quadro indica in particolare:
+a) i criteri di individuazione del soggetto attuatore degli interventi e di gestione delle relative opere ed infrastrutture, in conformità a quanto previsto dall'articolo 156, comma 1, del d.lgs. 152/2006;
+b) le modalità di accesso e di gestione del fondo di cui all'articolo 25 bis.
+3. I contenuti dell'accordo quadro sono integrati, con apposita modifica, nelle convenzioni di gestione esistenti e costituiscono presupposto vincolante per l'affidamento della realizzazione degli interventi strategici e per la gestione delle relative opere, inseriti nel piano d'ambito mediante l'aggiornamento di cui all'articolo 19, comma 2.
