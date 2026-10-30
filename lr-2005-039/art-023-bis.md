@@ -1,4 +1,4 @@
-Art. 23 bis - Attestato di certificazione energetica
+Art. 23 bis - Attestato di prestazione energetica
 1. Gli edifici e le unità immobiliari sono soggetti agli obblighi di attestazione della prestazione energetica prescritti dall'articolo 6 del d.lgs.192/2005, in applicazione della direttiva 2010/31/UE.
 2. L'attestato di prestazione energetica è trasmesso attraverso il sistema informativo regionale sull'efficienza energetica di cui all'articolo 23 ter.
 3. L'attestato di prestazione energetica tiene luogo dell'attestato di qualificazione energetica di cui all'articolo 8 del d.lgs. 192/2005, nei casi in cui tali attestati debbano essere trasmessi entrambi.

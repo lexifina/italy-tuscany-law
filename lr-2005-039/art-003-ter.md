@@ -9,6 +9,7 @@ c) svolgono le attività di vigilanza e applicazione delle sanzioni ai sensi deg
 d) adottano negli atti di governo del territorio e nei regolamenti edilizi prescrizioni concernenti l'efficienza energetica in edilizia, secondo quanto previsto dall'articolo 8, comma 3;
 e) esercitano le funzioni connesse alle verifiche e ai controlli relativi agli obblighi di cui all'articolo 23, con riferimento alle relazioni tecniche di rendimento energetico;
 e bis) esercitano le funzioni connesse alle verifiche e ai controlli relativi agli obblighi di cui all'articolo 23 bis, commi 3 e 4, con riferimento agli attestati di prestazione energetica;
+e ter) applicano la sanzione amministrativa di cui all' articolo 15, comma 10, del d.lgs. 192/2005, relativamente agli edifici ubicati nel territorio di competenza.
 f) abrogata;
 g) abrogata;
 h) promuovono misure a tutela dei consumatori, secondo le modalità di cui agli articoli 31 e 33;

@@ -1,0 +1,3 @@
+Art. 38 quater Disposizioni transitorie relative alla determinazione dei contributi per le attività di tenuta, monitoraggio e controllo degli attestati di prestazione energetica e degli oneri dovuti per la gestione del SIERT
+1. Per le annualità 2022 e 2023 l'ammontare dei contributi dovuti ai sensi dell'articolo 23 octies, comma 1, è determinato nella misura di 10,00 euro.
+2. Per le annualità 2022 e 2023 l'ammontare degli oneri dovuti ai sensi dell'articolo 23 octies, comma 2, è determinato nella misura di 5,00 euro.

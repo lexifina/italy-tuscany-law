@@ -1,0 +1,2 @@
+Art. 40 ter Disposizione finanziaria. Entrate per l'implementazione del SIERT
+1. Le maggiori entrate a legislazione vigente derivanti dall'applicazione di quanto disposto dall'articolo 23 octies, comma 2, sono stimate in euro 45.000,00 annui e sono imputate alla Tipologia 100 "Vendita di beni e servizi e proventi derivanti dalla gestione dei beni" del Titolo 3 "Entrate extratributarie" della parte entrata del bilancio regionale.
