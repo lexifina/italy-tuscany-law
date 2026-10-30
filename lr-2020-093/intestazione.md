@@ -1,0 +1,24 @@
+Legge regionale
+27 novembre 2020
+93
+Interventi normativi collegati alla terza variazione al bilancio di previsione finanziario 2020 – 2022. Modifiche alla l.r. 73/2005 e alla l.r. 19/2019.
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio Regionale
+Visto l'articolo 117, commi terzo e quarto, e l'articolo 119, commi primo e secondo, della Costituzione;
+Visto l'articolo 4 dello Statuto;
+Visto il decreto legislativo 23 giugno 2011, n. 118 (Disposizioni in materia di armonizzazione dei sistemi contabili e degli schemi di bilancio delle Regioni, degli enti locali e dei loro organismi, a norma degli articoli 1 e 2 della legge 5 maggio 2009, n. 42);
+Vista la legge regionale 30 dicembre 1971, n. 2 (Istituzione dei tributi propri della Regione);
+Vista la legge regionale 28 dicembre 2005, n. 73 (Norme per la promozione e lo sviluppo del sistema cooperativo della Toscana);
+Vista la legge regionale 16 aprile 2019, n. 19 (Interventi normativi relativi alla prima variazione al bilancio di previsione 2019 – 2021);
+Considerato quanto segue:
+1. Al fine di contenere il livello complessivo della pressione tributaria a fronte della particolare situazione economica in cui versano gli operatori e i cittadini alla luce della situazione epidemiologica da COVID-19, in coerenza con gli equilibri generali di finanza pubblica, per l'anno 2020 è ridotta del 100 per cento l'aliquota dell'imposta regionale sulle concessioni statali per l'occupazione e l'uso dei beni del demanio e del patrimonio indisponibile dello Stato di cui all'articolo 1, comma 2, lettera a), della l.r. 2/1971;
+2. Con deliberazione della Giunta regionale 5 agosto 2019, n. 1035 è stato disposto che il conguaglio delle somme dovute a seguito dell'adeguamento dei canoni delle concessioni acqua e uso del demanio idrico, sulla base del tasso di inflazione, con riferimento alle concessioni rilasciate o il cui canone è in scadenza nel corso dell'annualità 2019, sia corrisposto unitamente al canone per il 2020;
+3. Si rende necessario non applicare, per gli anni 2019 e 2020, l'aggiornamento determinato sulla base del tasso di inflazione programmato di cui all'articolo 28, comma 7, del regolamento emanato con decreto del Presidente della Giunta regionale 12 agosto 2016, n. 60 (Regolamento in attuazione dell'articolo 5 della legge regionale 28 dicembre 2015 n. 80 "Norme in materia di difesa del suolo, tutela delle risorse idrica e tutela della costa e degli abitati costieri" recante disciplina del rilascio delle concessioni per l'utilizzo del demanio idrico e criteri per la determinazione dei canoni), e dell'articolo 18, comma 5, del regolamento emanato con decreto del Presidente della Giunta regionale 16 agosto 2016, n. 61 (Regolamento di attuazione dell'articolo 11, commi 1 e 2, della legge regionale 28 dicembre 2015, n. 80 "Norme in materia di difesa del suolo, tutela delle risorse idriche e tutela della costa e degli abitati costieri" recante disposizioni per l'utilizzo razionale della risorsa idrica e per la disciplina dei procedimenti di rilascio dei titoli concessori e autorizzatori per l'uso di acqua. Modifiche al d.p.g.r. 51/R/2015);
+4. La Giunta regionale con deliberazione 15 settembre 2020, n. 1267 ha approvato il documento di attuazione regionale (DAR) versione n. 6, del programma operativo regionale (POR) "Obiettivo investimenti in favore della crescita e dell'occupazione", Fondo europeo di sviluppo regionale (FESR) 2014 – 2020, nel quale è contenuta l'azione 3.1.1 sub 4) "Sostegno alle cooperative di comunità di cui all'articolo 11 bis della l.r. 73/2005", il cui piano finanziario prevede una dotazione di 1.000.000,00 di euro, con la quale è opportuno incrementare le risorse destinate agli interventi a sostegno delle cooperative di comunità;
+5. È opportuno finanziare o cofinanziare, per l'importo complessivo di euro 1.000.000,00, alcuni interventi di investimento nell'ambito dell'assistenza territoriale;
+6. Si rende necessario un intervento finanziario straordinario della Regione nei confronti della Fondazione carnevale di Viareggio a titolo di prosecuzione nel sostegno alle spese di organizzazione dell'edizione 2020 di detto carnevale;
+7. Si rende necessario un intervento finanziario straordinario della Regione in favore della Fondazione festival pucciniano per assicurare continuità alla copertura della spesa per la costruzione del teatro all'aperto di Torre del Lago Puccini;
+8. È necessario sostenere anche quelle attività imprenditoriali inerenti all'organizzazione e gestione, per lo spettacolo dal vivo e le scuole di danza, che hanno subito perdite rilevanti conseguenti alla sospensione delle attività di spettacolo in ragione della emergenza sanitaria;
+9. Al fine di consentire una rapida attivazione degli interventi previsti dalla presente legge, è necessario disporre la sua entrata in vigore il giorno della pubblicazione sul Bollettino ufficiale della Regione Toscana;
+Approva la presente legge
