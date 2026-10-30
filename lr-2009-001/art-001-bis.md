@@ -1,0 +1,3 @@
+Art. 1 bis - Intese tra Consiglio regionale e Giunta regionale
+1. Gli atti di carattere generale in materia di personale, destinati a trovare applicazione o comunque a produrre effetti anche per il personale del Consiglio regionale, sono assunti dalla Giunta regionale, oppure dalla sua direzione generale previa intesa, rispettivamente, con l'Ufficio di presidenza del Consiglio regionale, oppure con il Segretario generale del medesimo. In difetto di intesa, gli atti sono inefficaci ed inapplicabili nei confronti del personale del Consiglio regionale.
+2. La Giunta regionale e l'Ufficio di presidenza del Consiglio regionale definiscono, con intesa, le tipologie delle disposizioni di carattere generale soggette all'applicazione del comma 1.

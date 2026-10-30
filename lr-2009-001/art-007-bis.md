@@ -1,0 +1,5 @@
+Art. 7 bis - Funzioni in materia di tutela della salute e della sicurezza sui luoghi di lavoro
+1. La Giunta regionale, con deliberazione, individua il direttore[ generale ] che assume le funzioni di datore di lavoro agli effetti del decreto legislativo 9 aprile 2008, n. 81 (Attuazione dell'articolo 1 della legge 3 agosto 2007, n. 123 in materia di tutela della salute e della sicurezza nei luoghi di lavoro), e definisce l'articolazione delle funzioni fra i vari soggetti tenuti all'adempimento degli obblighi di cui all'articolo 18 del decreto stesso.
+2. Il datore di lavoro, fatto salvo quanto previsto dall'articolo 17 del d.lgs. 81/2008, esercita le proprie funzioni tramite delega ai dirigenti in relazione all'ubicazione delle sedi o alle attribuzioni di ciascuna articolazione in ordine alla tutela della salute e della sicurezza nei luoghi di lavoro. La delega è rilasciata nel rispetto di quanto previsto dall'articolo 16 del d.lgs 81/2008.
+3. Il datore di lavoro esercita le proprie funzioni avvalendosi del servizio di prevenzione e protezione dai rischi ai sensi dell'articolo 31 del d.lgs. 81/2008.
+4. Abrogato.
