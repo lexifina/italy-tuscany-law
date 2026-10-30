@@ -1,0 +1,4 @@
+CAPO II - Funzioni e criteri localizzativi
+Art. 3 bis Livelli e qualità del servizio
+1. La Regione promuove sistemi informativi a supporto della qualità delle comunicazioni e della copertura di rete, disponibili per i comuni.
+2. I sistemi di cui al comma 1 sono implementati con lo scopo di produrre stime di livello di qualità dei servizi e delle reti nel rispetto dell'articolo 8 del d.lgs. 259/2003.
