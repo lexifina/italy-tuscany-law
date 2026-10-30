@@ -1,0 +1,11 @@
+Art. 40 ter - Gruppo tecnico regionale di verifica
+1. Il direttore della direzione competente per materia costituisce il gruppo tecnico regionale di verifica, con proprio decreto, sulla base dell'elenco di cui all'articolo 40 bis, assicurando la presenza al suo interno delle specifiche professionalità in grado di fornire l'apporto integrato delle varie competenze teoriche ed esperienziali necessarie per lo svolgimento delle funzioni attribuite al gruppo stesso.
+2. Il regolamento di cui all'articolo 48 disciplina i criteri di scelta e le modalità di funzionamento del gruppo di verifica e le ipotesi di astensione dei suoi membri, atte a garantire l'assenza di conflitto di interessi nello svolgimento delle attività di valutazione.
+3. Ai membri del gruppo di verifica compete un'indennità di presenza ed il rimborso delle spese sostenute, secondo quanto stabilito per i dirigenti regionali.
+4. Il gruppo di verifica valuta i requisiti strutturali, impiantistici e organizzativi, necessari per garantire la sicurezza e la qualità, posseduti dalle strutture pubbliche e private oggetto di visita e la loro coerenza con quanto dichiarato dal responsabile legale della struttura.
+5. A tali fini, il gruppo di verifica:
+a) organizza e realizza le visite nelle strutture sanitarie pubbliche e private per la verifica del possesso dei requisiti di cui al comma 4;
+b) organizza e realizza le verifiche di cui il comune, anche su istanza del gruppo di verifica, ravvisi la necessità ai fini del buon andamento delle attività sanitarie.
+6. Il gruppo di verifica opera presso il competente settore regionale; per il suo funzionamento il gruppo individua al suo interno un proprio coordinatore.
+7. Il coordinatore del gruppo di verifica, nello svolgimento dell'attività di verifica, può coinvolgere anche specifiche competenze professionali facenti parte del servizio sanitario regionale.
+7 bis. La Giunta regionale, con deliberazione, disciplina la corresponsione delle indennità di presenza spettanti ai componenti del gruppo di verifica, determinandone gli importi, i criteri e le modalità di erogazione; l'importo delle indennità è determinato tenendo conto della funzione dell'organismo, della complessità dell'attività che è chiamato a svolgere, dell'impegno richiesto ai componenti e delle conseguenti responsabilità.

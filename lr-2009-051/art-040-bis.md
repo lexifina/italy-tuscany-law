@@ -1,0 +1,6 @@
+Art. 40 bis - Istituzione dell' elenco regionale dei verificatori
+1. La Giunta regionale istituisce l'elenco regionale degli esperti verificatori in ambito sanitario con le funzioni di verifica tecnica sul possesso e mantenimento dei requisiti di cui all'articolo 3; l'elenco è aggiornato con periodicità quinquennale.
+2. La Giunta regionale definisce, con propria deliberazione, le modalità di accesso all'elenco di cui al comma 1 e i requisiti richiesti, nel rispetto dei seguenti principi:
+a) accesso all'elenco mediante un'apposita procedura selettiva regionale, con valutazione di titoli e colloquio attitudinale;
+b) definizione dei titoli di studio di livello universitario e competenze specifiche in materia di valutazione della qualità e della sicurezza in ambito sanitario;
+c) valorizzazione di esperienze professionali e lavorative acquisite in materia.
