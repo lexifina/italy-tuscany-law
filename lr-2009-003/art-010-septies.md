@@ -1,0 +1,4 @@
+Art. 10 septies Quota contributiva a carico del soggetto e della Regione
+1. La quota di contribuzione a carico del consigliere è pari all'aliquota percentuale della base imponibile prevista dalla legislazione regionale vigente durante l'espletamento del mandato, ivi compresi i contributi volontari di cui all'articolo 15 e quelli di cui all'articolo 18, commi 5 e 6. La quota di contribuzione a carico della Regione Toscana è pari a 2,75 volte quella versata dal consigliere .
+2. Nei periodi in cui la legislazione regionale ha stabilito in modo indistinto la percentuale di contribuzione relativa alla maturazione dell'assegno vitalizio e dell'indennità di fine mandato, ai fini del ricalcolo con il metodo contributivo si considera l'aliquota relativa all'ultimo periodo in cui è identificata la quota di contribuzione finalizzata al solo vitalizio.
+3. I contributi versati sono calcolati sulla base dei giorni effettivi di calendario solare.

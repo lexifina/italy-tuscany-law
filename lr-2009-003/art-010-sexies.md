@@ -1,0 +1,3 @@
+Art. 10sexies Base imponibile contributiva
+1. La base imponibile contributiva è determinata secondo quanto riportato nell'allegato A, sulla base dell'indennità di carica lorda stabilita dalla normativa regionale vigente per ogni periodo di riferimento considerato utile ai fini dell'applicazione dell'aliquota contributiva a carico del consigliere, tenuto conto di quanto disposto dagli articoli 3, comma 1, e 4, comma 2, con esclusione di qualsiasi ulteriore indennità.
+2. La base imponibile determinata ai sensi del comma 1 è incrementata nella misura di cui all'articolo 43 del decreto del Presidente della Repubblica 29 dicembre 1973 n. 1092 (Approvazione del testo unico delle norme sul trattamento di quiescenza dei dipendenti civili e militari dello Stato).

@@ -1,0 +1,4 @@
+Art. 10 novies Misura massima dell'assegno vitalizio rideterminato
+1. Dall'entrata in vigore del presente capo la misura dell'assegno vitalizio antecedente alla rideterminazione con il metodo di calcolo contributivo di cui agli articoli 18 e 27 costituisce l'importo massimo erogabile a seguito della rideterminazione e termine di paragone per la determinazione delle clausole di salvaguardia di cui all'articolo 10 decies.
+2. I commi 1, 3 bis, 4, 5 e 6 dell'articolo 18 e il comma 4 dell'articolo 27 sono abrogati.
+3. I commi 5 e 6 dell'articolo 18 continuano ad essere applicati ai fini del comma 1 e dell'articolo 10 septies.

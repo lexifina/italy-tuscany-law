@@ -1,0 +1,2 @@
+Art. 10 duodecies Inserimento degli Allegati A, B e C nella l.r. 3/2009
+1. Nella l.r. 3/2009 è inserito l'allegato A (Base imponibile contributiva), l'allegato B (Montante contributivo individuale e coefficiente di trasformazione), l'allegato C (Clausola di salvaguardia per l'assegno vitalizio diretto ed indiretto).
