@@ -1,0 +1,12 @@
+Art. 6 bis Impianti di depurazione delle acque reflue urbane
+1. I progetti degli impianti di trattamento delle acque reflue urbane di cui all'articolo 126 del decreto legislativo sono approvati dall'Autorità idrica toscana ai sensi dell'articolo 22 della l.r. 69/2011, in conformità alle norme sul procedimento amministrativo e alle disposizioni statali e regionali che regolano i lavori pubblici relativi alle infrastrutture del servizio idrico integrato.
+2. La valutazione tecnico amministrativa finalizzata all'approvazione dei progetti di cui al comma 1, è espressa in coerenza con le linee guida di cui al comma 5 e, in caso di progetto definitivo, sulla base del parere obbligatorio e vincolante della struttura regionale competente che si esprime in relazione:
+a) ai programmi di riutilizzazione delle acque;
+b) alla verifica della rispondenza del progetto ai criteri di cui all'allegato 5 alla parte terza del decreto legislativo;
+c) alla corrispondenza tra la capacità di trattamento dell'impianto e le esigenze delle aree asservite;
+d) all'efficienza depurativa in funzione del perseguimento degli obiettivi di qualità stabiliti dal piano di tutela delle acque, nonché alle modalità della gestione che deve assicurare il rispetto dei valori limite.
+3. Ai fini dell'istruttoria finalizzata al rilascio del parere di cui al comma 1, la struttura regionale può avvalersi del supporto tecnico scientifico dell'ARPAT in conformità a quanto previsto dalla l.r. 30/2009.
+4. Gli elaborati progettuali, individuati dalla normativa in materia di lavori pubblici, sono integrati da apposite relazioni tecniche volte:
+a) a definire le caratteristiche di qualità e le modalità di scarico durante le fasi di avviamento di un nuovo impianto o durante gli interventi sugli impianti esistenti relativi a parti dei medesimi il cui mancato funzionamento ne compromette temporaneamente l'efficienza;
+b) a regolare i periodi di avviamento e di manutenzione programmata nonché a disciplinare le modalità di ripristino funzionale dell'impianto in esito a interventi di adeguamento, a guasti, a malfunzionamenti o interruzioni dovute a cause di forza maggiore.
+5. In coerenza con i criteri della buona tecnica corrente e della migliore tecnologia disponibile, la Giunta regionale può approvare specifiche linee guida per la progettazione, gestione, manutenzione e controllo degli impianti di depurazione di acque reflue urbane, applicative delle normative di settore e delle disposizioni del presente articolo.

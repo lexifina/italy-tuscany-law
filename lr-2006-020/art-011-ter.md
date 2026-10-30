@@ -1,0 +1,12 @@
+Art. 11 ter Disposizioni per la restituzione delle acque in mare
+1. La restituzione di acque in mare, di cui all'articolo 2, comma 1, lettera c), numero 2 bis), nei casi non disciplinati dall'articolo 11 quater, è soggetta alle condizioni stabilite nel titolo abilitativo che autorizza, con opere di presa fisse o mobili, il prelievo delle acque, rilasciato dall'ente competente in materia di demanio marittimo.
+2. Le condizioni di cui al comma 1:
+a) includono prescrizioni e livelli di emissione, da stabilire, caso per caso, in correlazione alle caratteristiche chimico fisico biologiche che le acque hanno al prelievo, nonché, in correlazione all'ambiente marino di destinazione, nel rispetto degli indirizzi approvati con regolamento ai sensi dell'articolo 13, comma 1, lettera g);
+b) sono disposte previa valutazione tecnica dell'ARPAT, espressa in conformità a quanto previsto dalla l.r. 30/2009 e sentita, per quanto di competenza, l'autorità di bacino.
+3. Gli indirizzi di cui al comma 2, lettera a), individuano la documentazione da allegare all'istanza per il rilascio del titolo demaniale, ai fini dell'approvazione delle condizioni di restituzione delle acque e prevedono inoltre:
+a) in caso di acque sottoposte a processi di dissalazione, modalità di restituzione che assicurano la massima diluizione in mare del concentrato salino, tale da non determinare effetti negativi e significativi sull'ambiente marino;
+b) l'obbligo per il soggetto autorizzato di separare dalle acque, o dal concentrato salino oggetto di restituzione, gli agenti chimici provenienti da lavaggi e controlavaggi o comunque utilizzati nell'ambito delle attività di cui all'articolo 114, comma 1, del decreto legislativo, al fine di consentirne il collettamento ad idoneo sistema di depurazione o lo smaltimento come rifiuti liquidi;
+c) il monitoraggio dell'ecosistema marino in prossimità delle condotte di presa e di restituzione dell'impianto.
+4. Il soggetto autorizzato ai sensi del comma 1 è tenuto:
+a) al controllo periodico della qualità delle acque restituite, secondo quanto previsto nel titolo demaniale rilasciato ed all'invio dei relativi risultati all'ente competente che si avvale dell'ARPAT per le necessarie verifiche;
+b) al pagamento delle spese occorrenti per effettuare i rilievi, gli accertamenti, i controlli e i sopralluoghi necessari a determinare le condizioni di restituzione di cui al comma 2, per quanto non già soddisfatto dagli oneri istruttori corrisposti per il rilascio del titolo che autorizza il prelievo delle acque di mare.

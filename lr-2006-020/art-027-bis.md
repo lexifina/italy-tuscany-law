@@ -1,0 +1,3 @@
+Art. 27 bis - Disposizioni transitorie relative al trasferimento di funzioni
+1. Le attività e gli adempimenti di competenza delle province ai sensi delle disposizioni transitorie di cui agli articoli 25, 26 e 27, sono svolti dalla Regione a decorrere dall'effettivo trasferimento alla medesima delle funzioni disciplinate dalla presente legge come modificata dalla legge regionale 26 gennaio 2016, n. 3 (Disposizioni per la tutela delle acque dall'inquinamento. Modifiche alla l.r. 20/2006 in attuazione della l.r. 22/2015).
+2. A decorrere dalla data di cui al comma 1, la Regione subentra alle province negli accordi di cui agli articoli 25 e 26 già sottoscritti alla medesima data.

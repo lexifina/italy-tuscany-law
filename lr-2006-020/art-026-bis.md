@@ -1,0 +1,2 @@
+Art. 26 bis Disposizioni per il rinnovo delle autorizzazioni allo scarico di acque reflue assimilate alle domestiche e di acque reflue domestiche derivanti da servizi, rilasciate dai comuni
+1. Le autorizzazioni allo scarico di acque reflue assimilate alle domestiche e di acque reflue domestiche derivanti da servizi, rilasciate dai comuni anteriormente all'entrata in vigore del d.p.r. 59/2013, sono rinnovate ai sensi della presente legge, dal dirigente della struttura regionale competente, nell'ambito dell'AUA.
