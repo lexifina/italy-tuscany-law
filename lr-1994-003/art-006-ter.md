@@ -1,0 +1,3 @@
+Art. 6 ter - Piano faunistico venatorio regionale
+1. Il Consiglio regionale approva, previo parere obbligatorio degli ATC e sentiti i comuni, il piano faunistico venatorio regionale in cui determina la destinazione differenziata del territorio regionale nel rispetto degli atti di pianificazione territoriale, paesaggistica e ambientale vigenti.
+2. Il piano faunistico venatorio costituisce presupposto per l'eventuale deroga ai termini di apertura e chiusura della caccia ai sensi dell'articolo 18, comma 2, della l. 157/1992 così come indicati nel calendario venatorio regionale.

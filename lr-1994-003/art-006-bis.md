@@ -1,0 +1,14 @@
+Art. 6 bis - Comprensorio
+1. Il comprensorio rappresenta, per aree omogenee, la base territoriale e organizzativa per la programmazione faunistico-venatoria e per la formulazione dei programmi di gestione, ed è individuato nel piano faunistico venatorio regionale.
+2. All'interno del comprensorio il piano faunistico venatorio regionale individua:
+a) le zone di protezione lungo le rotte di migrazione dell'avifauna e le oasi di protezione;
+b) le zone di ripopolamento e cattura e le zone di rispetto venatorio;
+c) i centri pubblici di riproduzione di fauna selvatica allo stato naturale;
+d) i centri privati di riproduzione di fauna selvatica alla stato naturale;
+e) le aziende faunistico venatorie;
+f) le aziende agrituristico venatorie;
+g) le aree di addestramento e allenamento dei cani;
+h) le zone in cui sono collocabili gli appostamenti fissi;
+i) per ciascuna specie di ungulati le aree ove la gestione è di tipo conservativo, denominate "aree vocate" e le aree dove la gestione è di tipo non conservativo, denominate "aree non vocate";
+j) tutte le ripartizioni del territorio necessarie per l'organizzazione del prelievo venatorio;
+k) i parchi nazionali e le aree protette di cui alla legge regionale 19 marzo 2015, n. 30 (Norme per la conservazione e la valorizzazione del patrimonio naturalistico-ambientale regionale. Modifiche alla l.r. 24/1994, alla l.r. 65/1997, alla l.r. 24/2000 ed alla l.r. 10/2010).

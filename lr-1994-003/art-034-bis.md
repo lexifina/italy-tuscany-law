@@ -1,0 +1,5 @@
+Art. 34 bis - Manufatti e altri interventi edilizi per esigenze venatorie
+1. Per il ritrovo e l'organizzazione delle attività delle squadre di caccia al cinghiale nel territorio rurale possono essere realizzati:
+a) manufatti secondo quanto previsto dall'articolo 78 della l.r. 65/2014;
+b) interventi edilizi sul patrimonio esistente secondo quanto previsto dall'articolo 79 della l.r. 65/2014.
+2. I manufatti di cui al comma 1 non costituiscono appostamenti fissi ai sensi dell'articolo 34.

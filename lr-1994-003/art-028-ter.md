@@ -1,0 +1,3 @@
+Art. 28 ter - Indennizzo dei danni
+1. Ai soggetti gestori delle aree protette di cui alla l.r. 30/2015 e degli istituti pubblici e privati compete la determinazione dell'indennizzo, e la relativa liquidazione, dei danni alle produzioni agricole causate dalle specie ungulate.
+2. Ai soggetti gestori di cui al comma 1 che non abbiano posto in essere i piani di prelievo e di controllo approvati dalla Giunta regionale è ulteriormente imputato l'indennizzo dei danni causati dalle specie ungulate entro la fascia di 200 metri circostanti i confini.

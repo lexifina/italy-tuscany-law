@@ -1,0 +1,7 @@
+Art. 37 quater - Procedure specifiche per l'attuazione delle deroghe di cui all'articolo 9, comma 1, lettera a), della dir. 2009/147/CE
+1. La Giunta regionale adotta le deliberazioni per il prelievo in deroga per perseguire le finalità specificate all'articolo 9, comma 1, lettera a), della dir. 2009/147/CE.
+2. Nel provvedimento di cui al comma 1 devono essere specificate:
+a) le colture danneggiate da ogni singola specie e l'importo dei danni accertati l'anno precedente;
+b) la localizzazione dei danni;
+c) il periodo di concentrazione dei medesimi;
+d) l'esito della messa in opera di sistemi preventivi di dissuasione e controllo.
