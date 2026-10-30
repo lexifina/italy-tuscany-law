@@ -1,0 +1,5 @@
+Art. 26 bis Attività formative di interesse regionale e contributo degli enti locali
+1. Annualmente la Giunta regionale individua:
+a) le attività formative di proprio interesse, come rilevate ai sensi dell'articolo 25, comma 2, anche tra quelle offerte dalla Fondazione Scuola interregionale di polizia locale;
+b) le risorse necessarie nei limiti delle disponibilità autorizzate dalla legge di bilancio.
+2. Gli enti locali che usufruiscono delle attività formative erogate dalla Regione per i propri dipendenti partecipano agli oneri secondo modalità stabilite dalla Giunta regionale, in misura comunque non superiore al 20 per cento.
