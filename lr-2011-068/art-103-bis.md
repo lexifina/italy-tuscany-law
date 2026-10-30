@@ -1,0 +1,3 @@
+Art. 103 bis - Norma di copertura finanziaria dell'articolo 15
+1. Per gli oneri derivanti dall'attuazione dell'articolo 15 è autorizzata la spesa massima di euro 1.120.000,00 per l'anno 2012, cui si fa fronte con gli stanziamenti della UPB 111 "Azioni di Sistema Regione-Enti Locali – spese correnti".
+2. Agli oneri per gli esercizi successivi si fa fronte con legge di bilancio.
