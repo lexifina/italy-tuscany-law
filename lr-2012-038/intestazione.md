@@ -1,0 +1,27 @@
+Legge regionale
+19 luglio 2012
+38
+Modifiche alla legge regionale 20 marzo 2000, n. 35 (Disciplina degli interventi regionali in materia di attività produttive).
+REGIONE TOSCANA
+PREAMBOLO
+Il Consiglio regionale
+Visto l'articolo 4, comma 1, lettera n), dello Statuto;
+Visto l'articolo 117, comma quarto, della Costituzione;
+Visto il decreto legislativo 12 aprile 2006, n. 163 (Codice dei contratti pubblici relativi a lavori, servizi e forniture in attuazione delle direttive 2004/17/CE e 2004/18/CE);
+Vista la legge regionale 3 gennaio 2005, n. 1 (Norme per il governo del territorio);
+Vista la legge regionale 23 luglio 2009, n. 40 (Legge di semplificazione e riordino normativo 2009);
+Vista la legge regionale 20 marzo 2000, n. 35 (Disciplina degli interventi regionali in materia di attività produttive);
+Considerato quanto segue:
+1. Al fine di promuovere la competitività del sistema produttivo toscano, anche in coerenza con i principi dello Small Business Act" per l'Europa, di cui alla comunicazione COM(2008) 394 definitivo del 25 giugno 2008 della Commissione al Consiglio, al Parlamento europeo, al Comitato economico e sociale europeo e al Comitato delle regioni (Una corsia preferenziale per la piccola impresa Alla ricerca di un nuovo quadro fondamentale per la Piccola Impresa "uno Small Business Act" per l'Europa), che definisce le grandi linee della politica a favore delle imprese, è necessario intervenire per migliorare l'accesso alle agevolazioni regionali delle microimprese, delle piccole e delle medie imprese come definite dalla raccomandazione della Commissione 2003/361/CE del 6 maggio 2003. In particolare, si promuovono azioni volte alla semplificazione e all'informatizzazione dei procedimenti di accesso alle agevolazioni regionali, anche mediante attestazione dei requisiti da parte delle imprese, nonché alla riduzione degli oneri amministrativi.
+2. Al fine di favorire lo sviluppo del sistema produttivo toscano è necessario un impegno prioritario dell'intervento regionale per la realizzazione di infrastrutture pubbliche di servizio alla produzione attraverso il recupero, l'utilizzazione, la riconversione di aree di bonifica di interesse nazionale e regionale, di aree a destinazione produttiva dismessa, del patrimonio immobiliare pubblico, di aree retro portuali;
+3. La dismissione di aree produttive costituisce grave pregiudizio territoriale, sociale ed economico occupazionale; pertanto sono specificamente previsti interventi per il recupero delle aree produttive dismesse;
+4. Il monitoraggio costante del contesto economico della microimpresa, della piccola e media impresa che opera nei settori dell'artigianato, dell'industria e della cooperazione, costituisce un elemento fondamentale per la programmazione delle politiche di intervento regionale che rende pertanto necessario costituire un osservatorio regionale sulle imprese;
+5. Al fine di rendere più efficace l'utilizzo delle risorse è costituito un fondo unico delle risorse destinate alle imprese;
+6. L'attuale crisi economica e finanziaria richiede un impegno finalizzato a sostenere i processi di reindustrializzazione. E' necessario pertanto istituire uno specifico fondo per sostenere gli investimenti di imprese in Toscana, per la realizzazione di nuove unità locali con creazione di occupazione aggiuntiva diretta e indiretta sul territorio regionale, con ciò riferendosi anche al sostegno dell'indotto. Si ritiene inoltre importante un impegno, a partire dal 2013, finalizzato a introdurre agevolazioni fiscali a favore di imprese che si insediano in Toscana e, in particolare, che investono in settori innovativi;
+7. Per l'efficacia degli interventi agevolativi regionali è importante che le imprese beneficiarie si impegnino a mantenere per un certo numero di anni l'investimento oggetto di contributo, l'unità produttiva localizzata in Toscana, l'incremento occupazionale realizzato per effetto del contributo. Si sono pertanto introdotti tali obblighi per le imprese beneficiarie;
+8. Al fine di agevolare la diffusione di strumenti e conoscenze per il rilancio della competitività delle imprese e per la formazione della cultura di impresa, sono promossi percorsi formativi a sostegno delle microimprese e delle piccole e medie imprese;
+9. Sono introdotti criteri di premialità correlati alla sostenibilità ambientale del territorio di appartenenza per favorire la partecipazione agli appalti delle microimprese e delle piccole e medie imprese;
+10. Al fine di dare certezza ai procedimenti amministrativi di erogazione degli incentivi è necessario una ridefinizione delle procedure di revoca dei contributi e apportare alcune modifiche al sistema sanzionatorio;
+11. Al fine di contrastare il lavoro nero e sommerso si sono previste misure di divieto di accesso ai contributi regionali e di sospensione dai contributi concessi per la durata dei provvedimenti statali di sospensione o interdizione adottati ai sensi dell'articolo 14 del decreto legislativo 9 aprile 2008, n. 81 (Attuazione dell'articolo 1 della legge 3 agosto 2007, n. 123, in materia di tutela della salute e della sicurezza nei luoghi di lavoro);
+12. Al fine di fornire un quadro conoscitivo generale sull'attuazione e sui risultati prodotti dall'applicazione della legge, è prevista la presentazione di una dettagliata e analitica relazione da parte della Giunta regionale alla commissione consiliare competente, entro il 30 giugno di ogni anno;
+Approva la presente legge
