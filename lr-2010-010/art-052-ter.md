@@ -1,1 +1,2 @@
-Art. 52 ter - Consultazione
+Art. 52 ter Consultazione
+Abrogato.

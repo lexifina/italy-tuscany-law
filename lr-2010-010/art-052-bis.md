@@ -1,1 +1,2 @@
-Art. 52 bis - Segreto industriale o commerciale ed esigenze di riservatezza
+Art. 52 bis Segreto industriale o commerciale ed esigenze di riservatezza
+Abrogato.

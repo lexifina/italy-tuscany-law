@@ -1,6 +1,6 @@
-CAPO III - Disposizioni sulle procedure
-Art. 47 ter - Oneri istruttori
-1. Ai sensi dell'articolo 33 del d.lgs. 152/2006, il proponente dei progetti soggetti alle procedure di cui al presente titolo è tenuto a versare a favore dell'autorità competente una somma a fronte dei costi sostenuti dalla medesima per l'organizzazione e lo svolgimento delle attività istruttorie, di monitoraggio e controllo, relative alle procedure di VIA disciplinate dalla presente legge.
+CAPO III Disposizioni sulle procedure
+Art. 47 ter Oneri istruttori
+1. Ai sensi dell'articolo 33 del d.lgs. 152/2006, il proponente dei progetti soggetti alle procedure di VIA di cui al presente titolo e di cui agli articoli 74 bis e 73 quinquies è tenuto a versare a favore dell'autorità competente una somma a fronte dei costi sostenuti dalla medesima per l'organizzazione e lo svolgimento delle attività istruttorie, di monitoraggio e controllo, relative alle procedure di VIA disciplinate dalla presente legge.
 2. La somma di cui al comma precedente è determinata nella misura massima dello 0,5 per mille del valore complessivo delle opere da realizzare, risultante dagli elaborati tecnico economici facenti parte della documentazione progettuale.
 3. Per i procedimenti di competenza regionale, la Giunta regionale, con propria deliberazione, definisce le modalità di determinazione e le tariffe da applicare ai fini del versamento della somma di cui ai commi 1 e 2, nonché le relative modalità di corresponsione. I comuni e gli enti parco regionali provvedono in conformità con i rispettivi ordinamenti.
 4. Nelle more dell'approvazione delle deliberazioni di cui al comma 3, il proponente è tenuto a versare a favore dell'autorità competente, per lo svolgimento dei compiti ad essa assegnati, una somma pari allo 0,5 per mille del valore complessivo delle opere da realizzare.
