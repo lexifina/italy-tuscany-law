@@ -1,0 +1,3 @@
+Art. 60 bis - Assegnazione all'azienda USL 1 dell'immobile ex GIL di Carrara
+1. L'immobile ex GIL, sito nel comune di Carrara in via Giovan Pietro, a seguito della riacquisizione al patrimonio regionale ai sensi della legge regionale 5 dicembre 1995, n. 105 (Attribuzione ai Comuni e alle Province di beni immobili regionali), è assegnato in proprietà all'azienda unità sanitaria locale (USL) n. 1 di Massa Carrara affinché proceda alla sua valorizzazione economica.
+2. In attuazione del comma 1, il decreto del Presidente della Giunta regionale di assegnazione in proprietà alla USL n. 1 di Massa Carrara è titolo per la trascrizione nei registri immobiliari e per la volturazione catastale del bene a favore dell'azienda USL.

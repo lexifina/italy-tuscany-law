@@ -1,0 +1,8 @@
+Art. 65 duodecies - Sostegno alle famiglie per frequenza scuole dell'infanzia paritarie, private e degli enti locali
+1. Al fine di sostenere le famiglie i cui figli frequentano le scuole dell'infanzia paritarie, private e degli enti locali, la Regione destina ai comuni, per l'anno scolastico 2013 – 2014, un contributo straordinario pari a euro 1.500.000, 00.
+2. Il sostegno di cui al comma 1, si realizza attraverso l'erogazione di un contributo economico finalizzato alla riduzione delle rette mensili per la frequenza, commisurato all'indicatore della situazione economica equivalente (ISEE), secondo i seguenti parametri:
+a) con ISEE fino a euro 17.999,00, un contributo fino a un massimo di euro 100,00;
+b) con ISEE da euro 18.000,00 a euro 23.999,00, un contributo fino a un massimo di euro 50,00;
+c) con ISEE da euro 24.000,00 a euro 30.000,00, un contributo fino a un massimo di euro 30,00.
+3. I contributi sono erogati a seguito di avviso pubblico regionale rivolto ai comuni nei cui territori è presente almeno una scuola dell'infanzia paritaria, privata o degli enti locali. I comuni, individuati i soggetti interessati sulla base dei parametri di cui al comma 2, inoltrano le richieste alla Regione, che ripartisce le risorse, fino all'esaurimento delle stesse, secondo un criterio di proporzionalità.
+4. Per l'attuazione di quanto previsto al comma 1, è autorizzata la spesa massima di euro 1.500.000,00, cui si fa fronte con gli stanziamenti dell'UPB 613 "Sistema dell'educazione e dell'istruzione – Spese correnti" del bilancio di previsione 2014.

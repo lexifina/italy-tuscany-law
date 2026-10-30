@@ -1,0 +1,4 @@
+Art. 65 sexies - Contributo straordinario per la sistemazione dell'area archeologica di Gonfienti
+1. Previa stipula di specifico accordo di programma, la Giunta regionale è autorizzata ad erogare contributi agli enti locali per la realizzazione di interventi volti alla tutela ed alla valorizzazione del sito archeologico di Gonfienti, anche in riferimento al miglioramento dell'accessibilità al pubblico dello stesso.
+2. I contributi di cui al comma 1, sono assegnati secondo le modalità operative stabilite con deliberazione della Giunta regionale.
+3. Per l'attuazione di quanto previsto dal comma 1 è destinata la spesa massima complessiva di euro 700.000,00 per l'anno 2015, cui si fa fronte con le risorse iscritte nell'UPB 341 "Azioni di sistema per il governo del territorio – Spese di investimento" del bilancio di previsione 2015.

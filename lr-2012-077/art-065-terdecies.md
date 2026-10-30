@@ -1,0 +1,4 @@
+Art. 65 terdecies Contributo straordinario al soggetto consortile di cui all'articolo 8 della l.r. 73/2008
+1. La Regione destina per l'anno 2013 al soggetto consortile multidisciplinare, di cui all'articolo 8 della legge regionale 30 dicembre 2008, n. 73 (Norme in materia di sostegno alla innovazione delle attività professionali intellettuali), un contributo straordinario di euro 100.000,00 per sostenere iniziative finalizzate a favorire l'accesso dei professionisti, con particolare riferimento ai giovani, alle risorse regionali, nazionali e comunitarie.
+2. Il contributo è erogato sulla base di un progetto presentato dal soggetto consortile e approvato con decreto del dirigente della competente struttura regionale.
+3. All'onere di spesa di cui al comma 1, pari ad euro 100.000,00 per l'anno 2013, si fa fronte con gli stanziamenti dell'UPB 513 "Interventi per lo sviluppo del sistema economico e produttivo – Spese correnti" del bilancio di previsione 2013.
