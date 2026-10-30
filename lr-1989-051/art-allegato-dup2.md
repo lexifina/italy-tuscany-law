@@ -1,0 +1,2 @@
+Allegato -B
+omissis

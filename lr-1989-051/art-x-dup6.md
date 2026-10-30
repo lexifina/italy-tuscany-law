@@ -1,0 +1,3 @@
+Titolo 2 - ASSUNZIONE AGLI IMPIEGHI REGIONALI
+Artt. 27 - 32
+Abrogati.
