@@ -1,7 +1,7 @@
 Legge regionale
 9 aprile 2015
 46
-Disciplina delle iniziative istituzionali del Consiglio regionale per la valorizzazione delle finalità statutarie. Abrogazione della l.r. 26/2001.
+Disciplina delle iniziative istituzionali del Consiglio regionale per la valorizzazione delle finalità statutarie e delle iniziative per la valorizzazione dell'identità toscana
 REGIONE TOSCANA
 PREAMBOLO
 Il Consiglio Regionale
@@ -9,7 +9,7 @@ Visto l'articolo 117, commi terzo e quarto, della Costituzione;
 Visto l'articolo 3, l'articolo 4, comma 1, lettere b), f), i), n), o), r) ed u), e l'articolo 11 dello Statuto;
 Vista la legge regionale 5 febbraio 2009 n. 4 (Autonomia dell'Assemblea legislativa regionale);
 Considerato quanto segue:
-1. Il Consiglio regionale promuove eventi di particolare rilievo istituzionale tesi a valorizzare la promozione della cultura e del sapere scientifico, dell'innovazione e dello sviluppo economico e a mantenere viva la memoria delle tradizioni storiche e culturali della Regione;
+1. Il Consiglio regionale promuove eventi di particolare rilievo istituzionale, tesi a valorizzare la promozione della cultura e del sapere scientifico, dell'innovazione e dello sviluppo economico e a mantenere viva la memoria delle tradizioni storiche e culturali della Regione, nonché iniziative per la valorizzazione dell'identità e delle tradizioni del territorio toscano ;
 2. Tra gli eventi di particolare rilievo e risonanza, anche internazionale, si segnalano la Festa della Toscana, le ricorrenze del Capodanno dell'Annunciazione , in data 25 marzo, dell'indipendenza della Toscana, in data 27 aprile, della prima seduta del Consiglio regionale, in data 13 luglio, del conferimento del titolo di Granduca della Toscana a Cosimo I, con estensione del suo dominio all'intero territorio che fu degli Etruschi, in data 27 agosto; il "Pianeta Galileo", il premio regionale "Innovazione Toscana – Amerigo Vespucci" ;
 3. Dal 2001 il Consiglio regionale celebra annualmente la Festa della Toscana, ricorrenza dedicata alla prima abolizione in Europa della pena di morte da parte del Granduca di Toscana Pietro Leopoldo I, avvenuta il 30 novembre 1786, attraverso la realizzazione e/o il sostegno ad iniziative diffuse sul territorio regionale finalizzate al coinvolgimento della comunità regionale su questa ed altre tematiche di interesse generale, appositamente individuate annualmente dall'Ufficio di Presidenza;
 4. La Festa della Toscana è la solenne occasione per meditare sulle radici di pace e di giustizia del popolo toscano, per coltivare la memoria della sua storia, per attingere alla tradizione di diritti e di civiltà che, in Toscana, ha trovato forte radicamento e convinta affermazione, per consegnare alle future generazioni il patrimonio di valori civili e spirituali che rappresentano la sua originale identità rigorosamente inserita nel quadro dell'unità della Repubblica Italiana, rispettosa dei principi sanciti dalla Carta dei diritti fondamentali dell'Unione europea;
