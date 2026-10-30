@@ -1,0 +1,11 @@
+Art. 15 bis - Comitato regionale di coordinamento
+1. Presso la Giunta regionale è istituito il comitato regionale di coordinamento con funzioni di raccordo e coordinamento per l'esercizio delle funzioni di controllo.
+2. Il comitato regionale di coordinamento è composto da:
+a) i dirigenti responsabili degli uffici regionali competenti in materia di tutela dall'inquinamento acustico ed igiene pubblica, o loro delegati;
+b) un rappresentante dei comuni nominato dal Consiglio delle autonomie locali;
+c) un rappresentante dell'ARPAT;
+d) un rappresentante delle aziende unità sanitarie locali.
+3. Il comitato regionale di coordinamento è convocato dal dirigente responsabile della struttura regionale competente in materia di tutela dall'inquinamento acustico, che lo presiede, almeno ogni sei mesi e comunque ogniqualvolta sia necessario un coordinamento a livello regionale.
+4. La partecipazione al comitato regionale di coordinamento è a titolo gratuito.
+5. Le modalità di funzionamento e partecipazione ai lavori del comitato regionale di coordinamento sono stabilite con deliberazione della Giunta regionale.
+6. Per quanto non previsto dal presente articolo si applicano le disposizioni della legge regionale 8 febbraio 2008, n. 5 (Norme in materia di nomine e designazioni e di rinnovo degli organi amministrativi di competenza della Regione).

@@ -1,0 +1,4 @@
+Art. 17 ter - Norma finanziaria
+1. Le risorse per l'attuazione degli interventi di cui all'articolo 11 sono definite, in coerenza con gli stanziamenti di bilancio, con il PAER di cui alla l.r. 14/2007.
+2. Gli oneri di cui all'articolo 3 bis, sono stimati in euro 100.000,00 per l'anno 2012 e euro 50.000,00 per l'anno 2013 e sono finanziati mediante gli stanziamenti della unità previsionale di base (UPB) 428 "Tutela dall'inquinamento dell'aria, acustico, elettromagnetico e luminoso, controllo della qualità dell'aria – Spese correnti" del bilancio pluriennale vigente 2011 – 2013.
+3. Agli oneri per gli esercizi successivi si fa fronte con legge di bilancio.

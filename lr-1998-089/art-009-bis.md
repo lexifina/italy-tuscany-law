@@ -1,0 +1,4 @@
+Art. 9 bis - Relazione biennale sullo stato acustico del comune
+1. In attuazione di quanto previsto all'articolo 7, comma 5, della l. 447/1995, i comuni con più di cinquantamila abitanti sono tenuti ad approvare la relazione biennale sullo stato acustico del comune ed a trasmetterla alla Regione , per le iniziative di competenza.
+2. La relazione contiene una dettagliata descrizione ed analisi dei livelli di inquinamento prodotto, in particolare, dai servizi di trasporto e relative infrastrutture, dal traffico veicolare, nonché dagli impianti ed infrastrutture adibite ad attività produttive, commerciali, sportive e ricreative.
+3. La Giunta regionale predispone una relazione di sintesi e la trasmette alla commissione consiliare competente per materia.

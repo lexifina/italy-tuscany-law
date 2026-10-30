@@ -1,0 +1,6 @@
+Art. 17 bis - Disposizioni per l'attuazione del d.lgs. 194/2005
+1. Il Comune di Firenze è individuato come agglomerato con più di 250.000 abitanti per gli effetti del decreto legislativo 19 agosto 2005, n. 194 (Attuazione della direttiva 2002/49/CE relativa alla determinazione e alla gestione del rumore ambientale).
+2. Con deliberazione della Giunta regionale sono individuati gli agglomerati compresi fra 100.000 e 250.000 abitanti per gli effetti del d.lgs. 194/2005.
+3. Il Comune di Firenze è l'autorità competente all'elaborazione delle mappe acustiche strategiche e dei dati di cui all'articolo 3, comma 1, lettera a), nonché dei piani di azione di cui all'articolo 4, comma 1, lettera a) del d.lgs. 194/2005, per l'agglomerato di cui al comma 1 del presente articolo.
+4. Il comune ricompreso nell'agglomerato avente il maggior numero di abitanti è l'autorità competente all'elaborazione delle mappe acustiche strategiche e dei dati di cui all'articolo 3, comma 3, lettera a), nonché dei piani di azione di cui all'articolo 4, comma 3, lettera a) del d.lgs. 194/2005, per gli agglomerati individuati nella deliberazione di cui al comma 2 del presente articolo.
+4 bis. Le mappature acustiche, le mappe acustiche strategiche ed i piani di azione sono elaborati nel rispetto delle disposizioni contenute nel d.lgs. 194/2005 e relativi allegati.
