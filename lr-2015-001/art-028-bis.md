@@ -1,0 +1,2 @@
+Art. 28 bis Organo competente al riconoscimento dei debiti fuori bilancio
+1. Ai sensi di quanto previsto dall'articolo 73, comma 4, del d.lgs. 118/2011, al riconoscimento della legittimità dei debiti fuori bilancio derivanti da sentenze esecutive si provvede con deliberazione della Giunta regionale nei casi in cui le risorse finanziarie necessarie al pagamento delle somme poste a carico dell'ente siano state preventivamente accantonate nell'ambito del fondo rischi per contenziosi del bilancio di previsione.
