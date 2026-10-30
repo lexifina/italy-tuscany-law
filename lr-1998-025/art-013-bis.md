@@ -1,5 +1,5 @@
 Art. 13 bis - Interventi edilizi ammessi
-1. A seguito dell'inserimento di un'area nell'elenco dei siti da bonificare di cui all'articolo 199, comma 6, lettera b), del d.lgs. 152/2006 o nell'anagrafe dei siti contaminati di cui all'articolo 251 del medesimo d.lgs. 152/2006, possono essere realizzati sui manufatti esistenti unicamente i seguenti interventi edilizi:
+1. Sui manufatti esistenti su un sito interessato da un procedimento di bonifica attivato ai sensi del titolo V, parte IV, del d.lgs. 152/2006, inserito nella sezione a) oppure nella sezione b) o nella sezione c) della banca dati di cui all'articolo 5 bis, possono essere realizzati unicamente gli interventi edilizi di seguito elencati:
 a) interventi di manutenzione ordinaria che non comportino aumento della pianta del fabbricato;
 b) interventi necessari al superamento delle barriere architettoniche e all'adeguamento degli immobili per le esigenze dei disabili, che non comportino aumento della pianta del fabbricato;
 c) interventi necessari all'adeguamento degli organismi edilizi alla normativa in materia di sicurezza nei luoghi di lavoro;
@@ -11,7 +11,7 @@ f) interventi di ristrutturazione edilizia, ossia quelli rivolti a trasformare l
 a) dimostri che l'inquinamento della falda non abbia avuto origine da attività svolte o da fatti verificatisi sul terreno di sua proprietà, allo stesso imputabili;
 b) dimostri che l'intervento edilizio proposto non infici in alcun modo la successiva bonifica della falda;
 c) dimostri che l'intervento proposto non comporti rischi per la salute delle persone che frequentano l'area a vario titolo;
-d) dia atto delle misure di prevenzione eventualmente già attuate ai sensi dell'articolo 245 del d.lgs. 152/2006.
+d) dia atto delle misure di prevenzione eventualmente già attuate ai sensi dell' articolo 245 del d.lgs. 152/2006.
 4. Ai fini di cui al comma 3, il proprietario dell'area presenta all'ente titolare del procedimento di bonifica il progetto di intervento e una relazione tecnica contenente:
 a) l'analisi delle attività potenzialmente inquinanti svolte, anche in passato, sull'area specificando l'attività produttiva, i cicli industriali, le materie prime utilizzate nonché i rifiuti e gli scarichi liquidi;
 b) la caratterizzazione dello stato di inquinamento della falda al di sotto dell'area;
