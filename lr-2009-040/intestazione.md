@@ -1,7 +1,7 @@
 Legge regionale
 23 luglio 2009
 40
-Norme sul procedimento amministrativo, per la semplificazione e la trasparenza dell'attività amministrativa.
+Norme sul procedimento amministrativo, per la semplificazione e la trasparenza dell'attività amministrativa .
 REGIONE TOSCANA
 PREAMBOLO
 Visto l'articolo 117, secondo, terzo e quarto comma della Costituzione;
