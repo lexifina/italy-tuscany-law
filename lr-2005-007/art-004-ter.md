@@ -1,7 +1,7 @@
-Art. 4 ter - Elenco delle associazioni piscatorie dilettantistiche
+Art. 4 ter Elenco delle associazioni piscatorie dilettantistiche
 1. La Giunta regionale, entro centottanta giorni dall'entrata in vigore della l.r 59/2017, istituisce con deliberazione, presso la competente struttura, l'elenco regionale delle associazioni piscatorie dilettantistiche.
 2. Per l'iscrizione all'elenco di cui al comma 1, le associazioni devono possedere i seguenti requisiti:
-a) essere iscritte nel registro regionale delle organizzazioni di volontariato di cui alla legge regionale 26 aprile 1993, n. 28 (Norme relative ai rapporti delle organizzazioni di volontariato con la Regione, gli Enti locali e gli altri Enti pubblici - Istituzione del registro regionale delle organizzazioni del volontariato) o essere iscritte nel registro regionale delle associazioni di promozione sociale, di cui alla legge regionale 9 dicembre 2002, n. 42 (Disciplina delle Associazioni di promozione sociale. Modifica all'articolo 9 della legge regionale 3 ottobre 1997, n. 72 "Organizzazione e promozione di un sistema di diritti di cittadinanza e di pari opportunità: riordino dei servizi socio-assistenziali e socio-sanitari integrati");
+a) essere iscritte nel registro unico nazionale del terzo settore (RUNTS) previsto dall'articolo 45 del decreto legislativo 3 luglio 2017, n. 117 (Codice del Terzo settore, a norma dell'articolo 1, comma 2, lettera b), della legge 6 giugno 2016, n. 106);
 b) avere un minimo di trecento soci residenti in Toscana;
 c) avere un'articolazione territoriale su almeno tre sedi provinciali in Toscana;
 d) avere tra i propri fini statutari la promozione della pesca dilettantistica e la tutela della fauna ittica.

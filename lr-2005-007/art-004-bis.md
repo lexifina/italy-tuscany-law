@@ -1,4 +1,4 @@
-Art. 4 bis - Esercizio di funzioni con soggetti terzi
+Art. 4 bis Esercizio di funzioni con soggetti terzi
 1. La competente struttura della Giunta regionale, previo svolgimento di procedure di selezione idonee ad assicurare il rispetto dei principi di trasparenza, di non discriminazione e di efficienza, può avvalersi di soggetti terzi, in particolare delle associazioni di pescatori di rilevanza nazionale operanti sul territorio regionale e delle associazioni piscatorie dilettantistiche iscritte nell'elenco di cui all'articolo 4 ter, per l'esercizio delle seguenti funzioni:
 a) gestione delle zone di frega;
 b) gestione delle zone di protezione parziale o totale della fauna ittica;
