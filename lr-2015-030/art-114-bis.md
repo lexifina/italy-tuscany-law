@@ -1,0 +1,6 @@
+Art. 114 bis Disposizioni transitorie per l'integrazione della composizione del consiglio direttivo degli enti parco regionali
+1. Entro centoventi giorni dall'entrata in vigore della legge regionale 21 giugno 2024, n. 23 (Integrazione della composizione del consiglio direttivo degli enti parco regionali. Modifiche alla l.r. 30/2015):
+a) gli enti parco regionali provvedono ad adeguare gli atti di propria competenza a seguito dell'integrazione della composizione del consiglio direttivo di cui all'articolo 21, comma 2, lettera c bis);
+b) le comunità del parco trasmettono al Consiglio regionale l'elenco delle organizzazioni sindacali di lavoratori maggiormente diffuse sul territorio, ai fini della nomina del componente di cui all'articolo 21, comma 2, lettera c bis).
+2. Nelle more dell'integrazione con il componente previsto ai sensi dell'articolo 21, comma 2, lettera c bis), i consigli direttivi in carica continuano ad esercitare le proprie funzioni nella loro composizione originaria.
+3. L'incarico del componente nominato ai sensi del comma 1, lettera b), termina alla naturale scadenza del mandato del consiglio direttivo in carica all'entrata in vigore della l.r. 23/2024.

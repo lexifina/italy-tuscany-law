@@ -1,4 +1,4 @@
-Art. 103 bis - Compiti dei soggetti organizzatori
+Art. 103 bis Compiti dei soggetti organizzatori
 1. In coerenza con gli indirizzi regionali di cui all'articolo 102, i soggetti che accedono al servizio volontario di vigilanza ambientale provvedono altresì a:
 a) trasmettere alla struttura regionale competente gli atti d'inquadramento e le convenzioni stipulate di cui all'articolo 103, comma 2, lettera b);
 b) formulare il programma di attività delle GAV e ad organizzare il relativo servizio;
