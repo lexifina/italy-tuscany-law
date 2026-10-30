@@ -1,0 +1,3 @@
+Art. 10 bis - Disposizioni finali e transitorie
+1. Le istruttorie relative ad istanze di esenzione presentate entro la data del 31 dicembre 2015, e non ancora definite alla medesima data, sono soggette a definizione in base alle disposizioni di cui agli articoli 4, 5, 6 e 8 come modificati dalla legge regionale 28 dicembre 2015, n. 81 (Legge di stabilità per l'anno 2016).
+2. Le esenzioni già riconosciute alla data del 31 dicembre 2015, in base a requisiti non conformi al disposto di cui agli articoli 4, 5, 6 e 8, come modificati dalla l.r. 81/2015, cessano di avere efficacia a decorrere dal 1° gennaio 2016.
