@@ -1,0 +1,2 @@
+Art. 31 ter -Disposizioni transitorie concernenti l'addizionale al tributo speciale per il deposito in discarica dei rifiuti solidi
+1. In sede di prima applicazione l'addizionale prevista dall'articolo 30 bis, comma 8, si applica a decorrere dal secondo trimestre successivo all'adozione dell'atto del dirigente della competente struttura di cui all'articolo 30 bis, comma 5, relativo all'accertamento dei livelli di raccolta differenziata raggiunti nell'anno 2006.

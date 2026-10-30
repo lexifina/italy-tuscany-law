@@ -1,0 +1,3 @@
+Art. 31 bis - Disposizioni transitorie concernenti l'applicazione del tributo speciale di cui all'articolo 30 bis
+1. Per l'anno d'imposta 2006, sino all'adozione del provvedimento regionale di accertamento di cui all'art. 30bis, comma 5,il tributo si determina in acconto con riferimento esclusivo alla quota relativa al grado di efficienza della raccolta differenziata, così come accertato dal provvedimento regionale adottato nell'anno 2005.
+2. I conguagli derivanti dall'applicazione della quota relativa alla produzione pro-capite di rifiuti per anno, sono effettuati in sede di versamento del tributo concernente il quarto trimestre 2006.

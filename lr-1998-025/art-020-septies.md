@@ -1,0 +1,3 @@
+Art. 20 septies - Disposizioni per l'impiego della frazione organica stabilizzata (FOS)
+1. Le attività di recupero della frazione organica stabilizzata (FOS) con le procedure di cui alla parte quarta, titolo I, capi IV e V, del d.lgs. 152/2006, possono essere autorizzate per la copertura giornaliera e la sistemazione finale delle discariche a condizione che tale materiale presenti un indice di respirazione dinamico (IRD) inferiore a 1.000 mgO2Kg-1VSh-.
+2. Nelle autorizzazioni di cui al comma 1, sono specificati, in funzione della tipologia della discarica, i quantitativi massimi da impiegare che comunque non possono essere superiori a venti centimetri di spessore, per la copertura giornaliera, ed a un metro di spessore, per la sistemazione finale.
