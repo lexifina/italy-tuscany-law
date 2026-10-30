@@ -1,0 +1,3 @@
+Art. 34 bis Sottosegretario alla presidenza
+1. Il presidente della giunta può nominare un sottosegretario alla presidenza, scelto fra i consiglieri regionali, che partecipa alle sedute della giunta, pur non facendone parte, senza diritto di voto.
+2. Il sottosegretario coadiuva il presidente della giunta nello svolgimento dei compiti inerenti al suo mandato, in particolare al fine di garantire uno stretto raccordo tra il consiglio e la giunta per la maggiore efficacia delle loro azioni, e può essere incaricato dal presidente di seguire specifiche questioni, con facoltà di riferire direttamente in merito agli incarichi ad esso attribuiti e a rappresentare la giunta, anche ai sensi degli articoli 24 e 25, nelle sedi consiliari e nelle altre sedi istituzionali.
