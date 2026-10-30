@@ -1,0 +1,3 @@
+Art. 7 ter Rimborso spese in caso di partecipazione alle sedute da remoto
+1. Nei casi previsti dall'articolo 186 ter del regolamento interno 24 febbraio 2015, n. 27 (Regolamento interno dell'Assemblea legislativa regionale), al consigliere autorizzato non è corrisposta la quota variabile mensile del rimborso spese per l'esercizio del mandato, di cui all'articolo 6 bis, comma 2, per tutto il periodo stabilito nell'autorizzazione.
+2. Nei casi in cui, nel periodo stabilito nell'autorizzazione, il consigliere autorizzato partecipi secondo la forma ordinaria alle sedute, ha diritto, per ogni giorno di presenza, al 5 per cento della quota variabile mensile del rimborso spese di cui all'articolo 6 bis, comma 2, sino all'importo massimo a lui spettante.

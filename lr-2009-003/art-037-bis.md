@@ -1,6 +1,6 @@
 Art. 37 bis - Autovetture di servizio
 1. Le autovetture di servizio con autista possono essere assegnate in uso esclusivo al Presidente del Consiglio regionale e al Presidente della Giunta regionale, limitatamente al periodo di durata dell'incarico e per le sole esigenze di servizio del titolare, ivi compresi gli spostamenti verso e da il luogo di lavoro.
-2. La Giunta regionale definisce con deliberazione le modalità unitarie di gestione secondo criteri di economicità del proprio parco autovetture, comprese quelle in uso agli assessori, al fine di assicurare la massima razionalizzazione della spesa,
+2. La Giunta regionale definisce con deliberazione le modalità unitarie di gestione secondo criteri di economicità del proprio parco autovetture, comprese quelle in uso agli assessori, ed al Sottosegretario alla presidenza della Giunta al fine di assicurare la massima razionalizzazione della spesa,
 3. Le autovetture di servizio con autista possono essere attribuite in uso non esclusivo:
 a) ai consiglieri;
 b) alle autorità monocratiche di tutela e di garanzia ed ai presidenti degli organismi autonomi istituiti presso il Consiglio regionale.
