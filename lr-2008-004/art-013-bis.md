@@ -1,0 +1,4 @@
+Art 13 bis - Sospensione dei termini
+1. I termini previsti da disposizioni regionali relativi a procedimenti amministrativi di competenza del Consiglio regionale e degli organismi ad esso afferenti, sono sospesi per i giorni per i quali l'Ufficio di presidenza delibera la chiusura degli uffici. Sono conseguentemente sospesi, per i medesimi giorni, anche i termini dei procedimenti amministrativi di competenza della Giunta regionale direttamente connessi, per previsione normativa, ai suddetti procedimenti amministrativi di competenza consiliare.
+2. La deliberazione dell'Ufficio di presidenza di cui al comma 1, è pubblicata sul Bollettino ufficiale della Regione Toscana e sul sito istituzionale del Consiglio regionale.
+3. Sono fatte salve le specifiche disposizioni di legge e di regolamento relative a maggiori sospensioni di termini previste per determinati provvedimenti.

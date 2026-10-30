@@ -1,0 +1,4 @@
+Art. 27 quater - Accesso dell'Assemblea legislativa regionale alle banche dati della Giunta regionale
+1. Ai fini dello svolgimento delle funzioni consiliari di legislazione, indirizzo politico, controllo, valutazione dei risultati delle politiche regionali, previste dallo Statuto, il Consiglio regionale accede alle banche dati della Giunta regionale per l'acquisizione in via ordinaria e costante di dati e informazioni.
+2 . Le banche dati di cui al comma 1, coi relativi contenuti, sono individuate da apposita intesa tra l'Ufficio di Presidenza e la Giunta regionale, entro novanta giorni dall'inizio di ciascuna legislatura, aggiornabile nel corso della legislatura stessa.
+3. La mancata sottoscrizione da parte della Giunta regionale dell'intesa di cui al comma 2, costituisce violazione delle prerogative statutarie riconosciute all'Assemblea legislativa regionale.
