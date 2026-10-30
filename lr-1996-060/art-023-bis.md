@@ -1,0 +1,16 @@
+Art. 23 bis - Ammontare dell'imposta e determinazione del tributo dovuto
+1. In attuazione dell'articolo 26 della legge 18 aprile 2005, n. 62 (Disposizioni per l'adempimento di obblighi derivanti dall'appartenenza dell'Italia alle Comunità europee. Legge comunitaria 2004), l'ammontare del tributo speciale per il deposito in discarica dei rifiuti solidi, è determinato in:
+a) euro 4,33 a tonnellata per i rifiuti speciali inerti non pericolosi ammissibili al conferimento in discarica per i rifiuti inerti ai sensi delle norme di attuazione del decreto legislativo 13 gennaio 2003, n. 36 (Attuazione della direttiva 1999/31/CE relativa alle discariche di rifiuti);
+b) euro 7,33 a tonnellata per i rifiuti speciali non pericolosi, non rientranti nella lettera a), derivanti:
+1) da prospezione, estrazione da miniera o cava, nonché dal trattamento fisico o chimico dei minerali, identificati con il codice CER 01, con esclusione dei rifiuti non specificati altrimenti compresi in tale categoria;
+2) da operazioni di costruzione e demolizione identificati con il codice CER 17;
+3) da processi termici identificati con il codice CER 10, come individuati nell'allegato A della presente legge;
+4) dalla lavorazione idrometallurgica del rame identificati con il codice CER 11 02 06, diversi da quelli della voce 11 02 05;
+c) nella misura di cui all'articolo 30 quater della legge regionale 18 maggio 1998, n. 25 (Norme per la gestione dei rifiuti e la bonifica dei siti inquinati), per i rifiuti derivanti da impianti di trattamento dei rifiuti urbani indifferenziati;
+d) euro 15,00 a tonnellata per i rifiuti speciali non pericolosi diversi da quelli indicati alle lettere a) e b);
+e) nella misura di cui agli articoli 30 bis e 30 quinquies della l.r. 25/1998 per i rifiuti urbani e assimilati;
+f) euro 15,00 a tonnellata per i rifiuti speciali pericolosi stabili e non reattivi di cui all'articolo 7, comma 3, lettera c), del d.lgs. 36/2003;
+g) euro 25,82 a tonnellata per i rifiuti pericolosi diversi da quelli indicati alla lettera e).
+2. Il tributo è determinato moltiplicando l'ammontare dell'imposta di cui al comma 1 per il quantitativo, espresso in tonnellate, ai rifiuti conferiti nonché per il coefficiente di correzione di cui all'articolo 3, comma 29, della legge statale. Ai fini del calcolo del tributo dovuto si tiene conto anche delle frazioni di tonnellata fino a tre decimali.
+3. I rifiuti smaltiti in impianti di incenerimento senza recupero di energia o comunque classificati esclusivamente come impianti di smaltimento mediante l'operazione "D10 Incenerimento a terra" ai sensi dell'allegato B alla parte quarta del d.lgs. 152/2006, gli scarti ed i sovvalli di impianti di selezione automatica, riciclaggio e compostaggio e i fanghi anche palabili sono soggetti al pagamento del tributo nella misura del 20 per cento di quella determinata, ai sensi del comma 2, in relazione alla diversa tipologia del rifiuto conferito.
+4. Gli scarti e i sovvalli di impianti di selezione automatica riciclaggio e compostaggio, conferiti ai fini dello smaltimento in discarica, sono soggetti al pagamento del tributo nella misura del 20 per cento di quella determinata, ai sensi del comma 2, per i rifiuti speciali di cui comma 1, lettera d).
