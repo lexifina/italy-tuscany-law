@@ -1,0 +1,2 @@
+Art. 32 ter Scioglimento degli organi
+1. Il Presidente della Giunta regionale, entro trenta giorni dall'entrata in vigore del presente articolo, decreta lo scioglimento degli organi del Consorzio e contestualmente nomina un Commissario ai sensi dell'articolo 2 della legge regionale 31 ottobre 2001, n. 53 (Disciplina dei commissari nominati dalla Regione) preposto alla gestione transitoria in attesa del riordino del Consorzio.

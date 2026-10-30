@@ -1,0 +1,4 @@
+Art. 32 quater Nomina del Commissario
+1. Il Commissario assume tutti i compiti e le funzioni dei disciolti organi e dura in carica fino alla nomina del commissario per la gestione ordinaria di cui all'articolo 22, comma 1, primo periodo, della legge regionale 17 luglio 2019, n. 44 (Norme per il riassetto del Consorzio per la Zona industriale apuana Modifiche all'articolo 32 quater della l.r. 82/2015) e comunque non oltre millequarantasette giorni dalla data del provvedimento di nomina.
+2. Il compenso per il Commissario non può eccedere quello in vigore per la carica del presidente del consorzio medesimo ed è determinato dall'atto di nomina di cui al comma 1.
+3. La Giunta regionale, nel termine di sei mesi dall'entrata in vigore del presente articolo, presenta al Consiglio regionale una proposta di legge diretta alla definizione della nuova governance del Consorzio e delle attività industriali.

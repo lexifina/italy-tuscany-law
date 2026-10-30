@@ -1,0 +1,3 @@
+CAPO III bis Commissariamento del Consorzio per la Zona Industriale Apuana
+Art. 32 bis Nuovo assetto normativo concernente il Consorzio per la Zona Industriale Apuana
+1. Ai fini dell'organizzazione di un sistema di governance delle attività industriali e nelle more della definizione di un nuovo assetto normativo concernente l'area industriale della zona apuana, gli organi del Consorzio per la Zona Industriale Apuana, di seguito Consorzio, disciplinato con legge regionale 7 maggio 1985, n. 59 (Norme per il riassetto del Consorzio Zona Industriale Apuana ai sensi dell'art. 65 del D.P.R. n. 616 del 1977) sono sciolti, ad eccezione del Collegio dei revisori, con le modalità previste dall'articolo 32 ter.

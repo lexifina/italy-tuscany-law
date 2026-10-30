@@ -1,0 +1,4 @@
+Art. 26 ter Contributi agli enti locali per la realizzazione di due studi di fattibilità relativi a progetti di paesaggio
+1. La Giunta regionale è autorizzata per l'anno 2016 a concedere contributi ai Comuni di Cortona e San Giovanni d'Asso per la realizzazione di uno studio di fattibilità relativo al progetto di paesaggio delle "Leopoldine in Val di Chiana" e per uno studio di fattibilità inerente il progetto di paesaggio "Ferro-Ciclovie della Val d'Orcia".
+2. I contributi sono assegnati secondo le modalità operative stabilite con deliberazione della Giunta regionale.
+3. Per l'attuazione di quanto previsto dal comma 1 è autorizzata la spesa massima di euro 200.000,00 per l'anno 2016, cui si fa fronte con gli stanziamenti della Missione 8 "Assetto del territorio ed edilizia abitativa", Programma 01 "Urbanistica e Assetto del territorio", Titolo 1 "Spese correnti" del bilancio di previsione 2016-2018, annualità 2016.
