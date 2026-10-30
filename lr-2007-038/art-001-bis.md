@@ -1,0 +1,5 @@
+Art. 1 bis Dimensione ambientale degli appalti pubblici
+1. Al fine di potenziare la tutela dell'ambiente, la Regione promuove l'integrazione degli appalti pubblici con la dimensione ambientale e le iniziative per orientare i cittadini e gli operatori della pubblica amministrazione verso comportamenti ecologicamente sostenibili, in conformità alla normativa europea e a quella nazionale di recepimento.
+2. Per conseguire le finalità di cui al comma 1, nelle procedure di appalto:
+a) è privilegiata l'acquisizione di lavori, forniture e servizi, a ridotto impatto ambientale, di seguito denominati "acquisti verdi", conformi a specifici obiettivi strategici ambientali, per quanto attiene a modelli di produzione e di consumo, e che comportano un vantaggio economico per l'ente in relazione ai costi sostenuti lungo l'intero ciclo di utilizzo del prodotto o del servizio;
+b) è incentivato l'acquisto di forniture e beni realizzati con materiali riciclati nel rispetto degli obblighi vigenti in materia.

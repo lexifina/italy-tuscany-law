@@ -1,0 +1,2 @@
+Art. 3 bis Incentivi per acquisti verdi da parte degli enti locali
+1. Per favorire ed incentivare lo sviluppo di comportamenti responsabili verso l'ambiente, in tutti i casi di incentivi della Regione agli enti locali per azioni che prevedono lo svolgimento di procedure di appalto per acquisizione di lavori, forniture e servizi nell'ambito delle tipologie suscettibili di acquisti verdi, l'erogazione del finanziamento è subordinata alla previsione nel bando di acquisti verdi in una percentuale minima del 35 per cento.

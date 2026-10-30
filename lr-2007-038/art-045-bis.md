@@ -1,0 +1,3 @@
+Art. 45 bis Ricorso agli ESTAV quali centrali di committenza
+1. La Regione può richiedere agli enti per i servizi tecnico amministrativi di area vasta (ESTAV) di cui alla legge regionale 25 febbraio 2005 n. 40 (Disciplina del servizio sanitario regionale), lo svolgimento, quale centrale di committenza ai sensi dell'articolo 33 del d. lgs. 163/2006, di procedure di gara per l'affidamento di forniture e servizi di proprio interesse.
+2. La Regione ed i soggetti di cui all'articolo 2, comma 1, lettera a), possono acquisire forniture e servizi aderendo ai contratti stipulati dagli ESTAV, quale centrale di committenza ai sensi dell'articolo 33 del d.lgs 163/2006.
