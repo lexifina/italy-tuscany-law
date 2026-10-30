@@ -1,0 +1,8 @@
+Art. 3 bis La funzione attribuita agli enti delegati ai sensi dell' art. 3 della presente legge è esercitata:
+a) dalle comunità montane di cui al secondo comma all' art. 2 della L.R. 16 giugno 1981, n. 54, per i rispettivi territori;
+b) dalle province, per i restanti territori.
+Nel caso di cui alla lettera b) del precedente comma la funzione è subdelegata dalle province alle singole associazioni intercomunali istituite ai sensi della L.R. 17 agosto 1979, n. 37 ovvero, per il medesimo ambito territoriale, ad altre forme associative dei comuni, in conformità ai principi di cui al quarto e quinto comma dell' art. 2 della L.R. 24 marzo 1986, n. 12. La subdelega è disposta qualora tutti i comuni dell'area interessata ne facciano espressa richiesta, previa deliberazione dei rispettivi consigli.
+La provincia, su richiesta dei comuni interessati, previa deliberazione dei rispettivi consigli, ha inoltre la facoltà di disporre la sub-delega della funzione suddetta, per ambiti territoriali diversi da quelli di cui al precedente comma, a favore di forme associative dei comuni.
+Le province deliberano la subdelega di cui ai precedenti commi e inviano i relativi atti alla Giunta regionale corredandoli con il proprio parere nel merito.
+I provvedimenti di sub-delega sono soggetti ad approvazione del Consiglio regionale, su proposta della Giunta, e sono pubblicati sul bollettino ufficiale della Regione.
+Il suddetto atto di approvazione stabilisce i termini iniziali di decorrenza dell'esercizio delle funzioni subdelegate e la disciplina dei rapporti tra regione, provincia ed ente subdelegato. Stabilisce inoltre le disposizioni di carattere transitorio, in conformità ai principi fissati dalla legge regionale.
