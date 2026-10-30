@@ -1,0 +1,8 @@
+Art. 5 bis Elenchi regionale dei revisori legali
+1. È istituito, presso il Consiglio regionale, l'elenco regionale dei revisori legali, il quale ha validità per tutte le nomine e designazioni relative a incarichi di revisore unico e di componente dei collegi sindacali e dei revisori dei conti di cui all'articolo 2, comma 1, lettera c).
+2. L'elenco è istituito in formato elettronico e consente agli interessati, in possesso dei requisiti, di presentare e aggiornare la domanda di iscrizione mediante accesso ad una apposita piattaforma telematica.
+3. Le modalità di istituzione e gestione dell'elenco sono disciplinate con provvedimento dell'Ufficio di presidenza.
+4. Le domande di iscrizione nell'elenco sono presentate da parte della persona direttamente interessata. Non sono previsti termini per effettuare la richiesta di iscrizione all'elenco regionale.
+5. Possono richiedere l'iscrizione nell'elenco regionale i soggetti iscritti nel registro dei revisori legali di cui al decreto legislativo 27 gennaio 2010, n. 39 (Attuazione della direttiva 2006/43/CE, relativa alle revisioni legali dei conti annuali e dei conti consolidati, che modifica le direttive 78/660/CEE e 83/349/CEE, e che abroga la direttiva 84/253/CEE).
+6. Il soggetto iscritto all'elenco è tenuto a comunicare tempestivamente integrazioni, variazioni, modificazioni e aggiornamenti dei dati dichiarati al momento della presentazione della domanda, ivi compreso il curriculum vitae.
+7. In qualunque momento il soggetto iscritto può fare richiesta di cancellazione dall'elenco regionale.
