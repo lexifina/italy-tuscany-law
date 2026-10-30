@@ -1,0 +1,3 @@
+Art. 46 sexies - Offerta termale
+1. Al fine di assicurare la valorizzazione ed il potenziamento dell'offerta termale in Toscana, la Giunta Regionale è autorizzata all'acquisizione dell'aumento di capitale della società "Terme di Casciana s.p.a.", con sede in Casciana Terme, nella misura, proporzionale alla quota posseduta pari al 50 per cento del capitale sociale, di n. 323.705 nuove azioni del valore nominale di euro 3,51 per complessivi euro 1.136.204,55.
+2. Per la sottoscrizione dell'aumento di capitale della società è autorizzata la spesa di euro 1.136.204,55 cui si fa fronte mediante lo stanziamento iscritto nella UPB 532 "Interventi, incentivi e servizi per lo sviluppo delle attività turistiche e termali - spese di investimento" del bilancio di previsione 2006."
