@@ -1,2 +1,2 @@
 Art. 9 bis Soggetti delegati al trattamento dei dati personali
-1. I dirigenti esercitano le competenze delegate dalla Giunta regionale in materia di protezione dei dati personali per i trattamenti attribuiti ai medesimi e alla struttura di cui sono responsabili. Le medesime competenze sono delegate all'Avvocato generale, al Direttore generale e ai direttori per i trattamenti relativi alle attività ad essi riservate.
+1. I dirigenti esercitano le competenze delegate dalla Giunta regionale in materia di protezione dei dati personali per i trattamenti attribuiti ai medesimi e alla struttura di cui sono responsabili. Le medesime competenze sono delegate al dirigente avvocato , al Direttore generale e ai direttori per i trattamenti relativi alle attività ad essi riservate.

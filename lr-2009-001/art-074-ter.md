@@ -1,0 +1,2 @@
+Art. 74 ter Proroga delle graduatorie dei concorsi pubblici per le assunzioni a tempo indeterminato
+1. Al fine di assicurare la continuità dei servizi pubblici erogati e l'efficienza amministrativa, nell'ottica di garantire il buon andamento e il contenimento della spesa regionale, l'efficacia delle graduatorie approvate all'esito delle procedure concorsuali per l'assunzione di personale a tempo indeterminato indette dalla Regione Toscana, la cui scadenza è prevista entro il 31 dicembre 2026, è prorogata di un anno.

@@ -7,5 +7,5 @@ Art. 34 bis - Limiti dei compensi
 6. Tutti i compensi lordi indicati negli atti di autorizzazione e di conferimento dell'anno di riferimento concorrono al raggiungimento dei limiti previsti ai commi 1 e 2.
 7. Per gli incarichi extraimpiego a carattere pluriennale le quote annuali del compenso indicate negli atti di autorizzazione e di conferimento concorrono al raggiungimento dei limiti previsti ai commi 1 e 2.
 8. La quota di compenso che eccede la somma autorizzata, benché entro i limiti previsti ai commi 1 e 2, è versata all'amministrazione direttamente dal committente o, se già percepita, dal dipendente.
-9. I compensi relativi agli incarichi extraimpiego previsti all'articolo 113 del decreto legislativo 18 aprile 2016, n. 50 (Codice dei contratti pubblici) concorrono al raggiungimento del limite annuo dei compensi.
+9. Abrogato.
 10. I compensi relativi agli incarichi extraimpiego indicati all'articolo 34, comma 5, lettera d), concorrono al raggiungimento del limite annuo dei compensi.
