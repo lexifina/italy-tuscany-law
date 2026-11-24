@@ -8,9 +8,9 @@ How global-law measures how current every country is: [global-law FRESHNESS.md](
 
 ### Raccolta normativa (Consiglio regionale della Toscana) · `italy/tuscany/acts`
 
-- The official source last read and every act held here checked against it: **2026-11-24 00:49 UTC**.
-- Acts held here: 1 333; current at the source: 1 331; changed at the source since the version held here: 0; no longer at the source: 2.
-- Compared with the source in this read: 46 of the 1 333 acts held here; the others were not compared in this read (see the check's note).
+- The official source last read and every act held here checked against it: **2026-11-24 01:01 UTC**.
+- Acts held here: 1 336; current at the source: 1 334; changed at the source since the version held here: 0; no longer at the source: 2.
+- Compared with the source in this read: 48 of the 1 336 acts held here; the others were not compared in this read (see the check's note).
 - Not published: 2 (held here, no longer at the source: 2); with no reason: 0.
 
 In detail: [monitoring/](monitoring/README.en.md). For programs: [data/checks/latest.json](data/checks/latest.json).

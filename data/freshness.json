@@ -4,12 +4,12 @@
  "note": "How current this repository is, from its check trail (data/checks/): the day each official source was last read with every act held here checked against it. tools/checktrail.py reads the trail.",
  "checked_against_official_source": "2026-11-24",
  "totals": {
-  "acts": 1333,
+  "acts": 1336,
   "by_status": {
-   "current": 46,
+   "current": 48,
    "pending-change": 0,
    "stale": 0,
-   "unverified": 1287,
+   "unverified": 1288,
    "source-unavailable": 0
   }
  },

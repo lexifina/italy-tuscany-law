@@ -8,9 +8,9 @@ Come global-law misura quanto è aggiornato ogni paese: [global-law FRESHNESS.md
 
 ### Raccolta normativa (Consiglio regionale della Toscana) · `italy/tuscany/acts`
 
-- Ultima lettura della fonte ufficiale, con ogni atto presente qui confrontato con essa: **2026-11-24 00:49 UTC**.
-- Atti presenti qui: 1 333; aggiornati rispetto alla fonte: 1 331; modificati alla fonte dopo la versione presente qui: 0; non più presenti alla fonte: 2.
-- Confrontati con la fonte in questa lettura: 46 dei 1 333 atti presenti qui; gli altri non sono stati confrontati in questa lettura (vedi la nota del controllo).
+- Ultima lettura della fonte ufficiale, con ogni atto presente qui confrontato con essa: **2026-11-24 01:01 UTC**.
+- Atti presenti qui: 1 336; aggiornati rispetto alla fonte: 1 334; modificati alla fonte dopo la versione presente qui: 0; non più presenti alla fonte: 2.
+- Confrontati con la fonte in questa lettura: 48 dei 1 336 atti presenti qui; gli altri non sono stati confrontati in questa lettura (vedi la nota del controllo).
 - Non pubblicati: 2 (presente qui, non più alla fonte: 2); senza motivo: 0.
 
 In dettaglio: [monitoring/](monitoring/README.md). Per i programmi: [data/checks/latest.json](data/checks/latest.json).

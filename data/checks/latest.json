@@ -1,52 +1,52 @@
 {
- "generated": "2026-11-24T00:49:10Z",
+ "generated": "2026-11-24T01:01:14Z",
  "latest": {
   "raccolta-toscana|italy/tuscany/acts": {
-   "attempt": 1,
+   "attempt": 2,
    "audit": {
-    "match_neither": 1,
-    "match_new": 4,
+    "match_neither": 0,
+    "match_new": 5,
     "match_old": 0,
     "method": "read again as the RTF download of the same current text (download_doc.php ...&ext=rtf, linked on the law's page beside the Akoma Ntoso file the check reads): the share of the words of the act's files found in the RTF's text, at least 0.97",
     "rows": [
      {
-      "id": "lr-2026-026",
-      "page": "https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2026-10-29;26",
+      "id": "lr-2026-027",
+      "page": "https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2026-10-29;27",
       "published": true,
-      "read": "https://raccoltanormativa.consiglio.regione.toscana.it/class/download_doc.php?id=2330204c-df52-11f1-a8f4-005056959b60&ext=rtf",
-      "share": 0.0,
-      "verdict": "match_neither"
+      "read": "https://raccoltanormativa.consiglio.regione.toscana.it/class/download_doc.php?id=2510e1a9-dfa3-11f1-a8f4-005056959b60&ext=rtf",
+      "share": 0.9989,
+      "verdict": "match_new"
      },
      {
-      "id": "lr-2024-057",
-      "page": "https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2024-12-09;57",
+      "id": "lr-2026-028",
+      "page": "https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2026-11-10;28",
       "published": true,
-      "read": "https://raccoltanormativa.consiglio.regione.toscana.it/class/download_doc.php?id=a4846956-dcd4-11f1-a8f4-005056959b60&ext=rtf",
-      "share": 1.0,
+      "read": "https://raccoltanormativa.consiglio.regione.toscana.it/class/download_doc.php?id=e11f66b5-df47-11f1-a8f4-005056959b60&ext=rtf",
+      "share": 0.9977,
       "verdict": "match_new"
      },
      {
-      "id": "lr-2021-004",
-      "page": "https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2021-02-03;4",
-      "published": false,
-      "read": "https://raccoltanormativa.consiglio.regione.toscana.it/class/download_doc.php?id=d0b8aa0b-0c6a-11ee-9898-005056959b60&ext=rtf",
-      "share": 0.9952,
+      "id": "lr-2026-029",
+      "page": "https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2026-11-10;29",
+      "published": true,
+      "read": "https://raccoltanormativa.consiglio.regione.toscana.it/class/download_doc.php?id=96f1992e-df48-11f1-a8f4-005056959b60&ext=rtf",
+      "share": 0.9956,
       "verdict": "match_new"
      },
      {
-      "id": "lr-2017-031",
-      "page": "https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2017-07-04;31",
+      "id": "lr-2013-070",
+      "page": "https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2013-11-22;70",
       "published": false,
-      "read": "https://raccoltanormativa.consiglio.regione.toscana.it/class/download_doc.php?id=fe10f7c9-67aa-11e7-a96e-0050568e5318&ext=rtf",
-      "share": 0.9974,
+      "read": "https://raccoltanormativa.consiglio.regione.toscana.it/class/download_doc.php?id=85df7f36-76b3-11eb-926b-0050568e1a48&ext=rtf",
+      "share": 0.9992,
       "verdict": "match_new"
      },
      {
-      "id": "lr-2024-017",
-      "page": "https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2024-05-14;17",
+      "id": "lr-2020-035",
+      "page": "https://raccoltanormativa.consiglio.regione.toscana.it/articolo?urndoc=urn:nir:regione.toscana:legge:2020-06-05;35",
       "published": false,
-      "read": "https://raccoltanormativa.consiglio.regione.toscana.it/class/download_doc.php?id=fb92ff49-8bae-11ef-b084-005056959b60&ext=rtf",
-      "share": 0.9988,
+      "read": "https://raccoltanormativa.consiglio.regione.toscana.it/class/download_doc.php?id=2566d1a7-aaeb-11ea-8db4-0050568e1a48&ext=rtf",
+      "share": 0.9983,
       "verdict": "match_new"
      }
     ],
@@ -54,78 +54,70 @@
     "unread": 0
    },
    "census": {
-    "checked": 46,
-    "current": 1331,
+    "checked": 48,
+    "current": 1334,
     "gone": 2,
-    "held": 1333,
-    "newest_at_source": "2026-10-29",
-    "newest_in_repo": "2026-10-26",
+    "held": 1336,
+    "newest_at_source": "2026-11-10",
+    "newest_in_repo": "2026-10-29",
     "pending": 0,
-    "repo": 1332,
+    "repo": 1333,
     "source_in_scope": null
    },
-   "check_id": "it-raccolta-toscana-20261124T004115Z",
+   "check_id": "it-raccolta-toscana-20261124T005315Z",
    "commits": {
-    "count": 3,
-    "from": "3638a7a72e6afe151e8cc994c1e9b9d70cbbe6f4",
-    "to": "3aff05d95068f6cbc0e1fd53388a4e1d6f2926e6"
+    "count": 4,
+    "from": "1e20ecebb0cb32049953874cf024659310a77ee3",
+    "to": "a8d0defff5d0665202f78401a27b9404eca683d7"
    },
    "corpus": "italy/tuscany/acts",
    "error": null,
-   "finished": "2026-11-24T00:49:09Z",
-   "flags": [
-    {
-     "detail": "1 of 5 read again by a second route disagree",
-     "flag": "audit-disagrees"
-    }
-   ],
+   "finished": "2026-11-24T01:01:13Z",
+   "flags": [],
    "gap": 2,
-   "note": "first check: the baseline (nothing to compare with); the site lists no laws without its search (a browser session): today's sweep read 45 held laws' pages (0 with no Akoma Ntoso text, not compared), 45 pages probed for new laws; 80 numbers of 2020 on below the highest known were found neither by the builder nor by the probes (the README's laws findable only through the site's search)",
+   "note": "the site lists no laws without its search (a browser session): today's sweep read 45 held laws' pages (0 with no Akoma Ntoso text, not compared), 45 pages probed for new laws; 80 numbers of 2020 on below the highest known were found neither by the builder nor by the probes (the README's laws findable only through the site's search)",
    "outcome": "changed",
    "published": {
     "added": [
-     "lr-2026-026"
+     "lr-2026-027",
+     "lr-2026-028",
+     "lr-2026-029"
     ],
-    "changed": [
-     "lr-2024-057"
-    ],
+    "changed": [],
     "removed": []
    },
-   "requests": 144,
+   "requests": 145,
    "runner": "lawwatch italy (92c4e33d60)",
    "schema": "lexifina-check/1",
    "seen": {
     "added": [
-     "lr-2026-026"
+     "lr-2026-027",
+     "lr-2026-028",
+     "lr-2026-029"
     ],
-    "changed": [
-     "lr-2024-057"
-    ],
-    "removed": [
-     "lr-1996-029",
-     "lr-2018-024"
-    ]
+    "changed": [],
+    "removed": []
    },
    "snapshot": null,
    "source": "raccolta-toscana",
-   "started": "2026-11-24T00:41:15Z",
+   "started": "2026-11-24T00:53:15Z",
    "unexplained": 0,
    "update": {
-    "commits": 3,
+    "commits": 4,
     "failed": 0,
     "later": 0,
-    "new": 1,
+    "new": 3,
     "same": 0,
-    "versions": 1
+    "versions": 0
    },
    "verify": {
     "cycle_days": 30,
     "examples": [],
     "explained": 2,
-    "held": 1332,
+    "held": 1333,
     "method": "each law's page and its current Akoma Ntoso file for a thirtieth of the held laws a day, parsed with the builder's parse_akm and compared with the act's folder file for file; laws published by this check counted as compared (the gate read their folders back as the builder's append wrote them)",
     "ok": true,
-    "versions_checked": 46,
+    "versions_checked": 48,
     "versions_differ": 0
    }
   }
