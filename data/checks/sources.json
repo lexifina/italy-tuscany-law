@@ -1,0 +1,36 @@
+{
+ "sources": [
+  {
+   "id": "raccolta-toscana",
+   "kind": "legislation",
+   "name": {
+    "en": "Raccolta normativa (Consiglio regionale della Toscana)",
+    "it": "Raccolta normativa (Consiglio regionale della Toscana)"
+   },
+   "url": "https://raccoltanormativa.consiglio.regione.toscana.it/",
+   "reads": {
+    "en": "each law's page and the current Akoma Ntoso text it links, for a thirtieth of the held laws a day; new laws by the next numbers of the year probed on their possible dates and by the laws cited in the texts read",
+    "it": "la pagina di ogni legge e il testo Akoma Ntoso vigente che essa collega, per un trentesimo delle leggi presenti qui ogni giorno; le leggi nuove con i numeri successivi dell'anno provati nelle date possibili e con le leggi citate nei testi letti"
+   },
+   "folders": [
+    "lr/",
+    "statuto/"
+   ],
+   "schedule": "daily",
+   "state": "watched",
+   "corpora": [
+    "italy/tuscany/acts"
+   ],
+   "interval": 3.2,
+   "allow": [
+    "lr/",
+    "statuto/",
+    "data/paths.json"
+   ],
+   "note": {
+    "en": "the open-data zips stopped in January 2022 and the site's search needs a browser session, so new laws are found as the builder found them (citations and date probes); a number neither finds is counted in the check's note",
+    "it": "gli zip dei dati aperti si sono fermati a gennaio 2022 e la ricerca del sito richiede una sessione del browser, quindi le leggi nuove si trovano come le ha trovate il costruttore (citazioni e prove di data); un numero che nessuno dei due trova è contato nella nota del controllo"
+   }
+  }
+ ]
+}
